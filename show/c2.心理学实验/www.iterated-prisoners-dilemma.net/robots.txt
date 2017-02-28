@@ -1,0 +1,366 @@
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+ 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+ <!DOCTYPE HTML PUBLIC "-//W3C//DTD HTML 4.0 Transitional//EN">
+<HTML><HEAD><TITLE>Free Web Browsers - Learn How To Remove About:Blank and Search Hijackers</TITLE>
+<META NAME="TITLE" CONTENT="Free Web Browsers">
+<META name=description content="Free Web Browsers. Learn How To Remove About:Blank and Search Hijackers" >
+<META name=Keywords content="free web browsers, web browser, web browsers" >
+<META NAME="OWNER" CONTENT="wayne@fastlink.com.au">
+<META NAME="AUTHOR" CONTENT="Webmaster">
+<META HTTP-EQUIV="EXPIRES" CONTENT=" ">
+<META HTTP-EQUIV="CHARSET" CONTENT="ISO-8859-1">
+<META HTTP-EQUIV="CONTENT-LANGUAGE" CONTENT="English">
+<META NAME="ROBOTS" CONTENT="noindex,follow">
+<META NAME="REVISIT-AFTER" CONTENT="2 weeks">
+
+<!--header comment here-->
+<!--free web browsers, opera, moneykey, dashtools, x-tool, i-tool, s'cool tool web browsers how to uninstall hotbar browser toolbar --> 
+<SCRIPT language=JavaScript1.2 src="http://www.free-web-browsers.com/X-Tool_files/animate.js"  fptype="dynamicanimation"> </SCRIPT>
+<!-- <a href="http://www.dash-po.com/register/index.php?atool=6&parent=7288"> -->
+<SCRIPT LANGUAGE="javascript"><!-- 
+var username = "info";
+var domain = "free-web-browsers.com";
+var pageLoaded = 0;
+var messageLoadDisplayed = 0;
+//-->
+</SCRIPT> 
+<link rel="icon" href="http://www.free-web-browsers.com/animated_favicon1.gif" type="image/gif" >
+<link rel="shortcut icon" href="http://www.free-web-browsers.com/favicon.ico" type="image/x-icon"> 
+
+
+</HEAD>
+<BODY onSelectstart="return false;" aLink=#ff0000 background="http://www.free-web-browsers.com/Itool_files/background.gif" bgColor=#000080 language="Javascript1.2"  onload="dynAnimation(); " vLink=#0000ff Link=#00ffff>
+<CENTER>
+<table bordercolor=#00ffff border=1 width=728><tr><td>
+<TABLE bgColor=#156f93 border=0  cellPadding=5 cellSpacing=0 width="100%">
+<TR><TD>
+<table border="0" cellpadding="0" cellspacing="0" width="100%">
+              <tr>
+                <td></td>
+              </tr></TABLE>
+</TD></TR>
+<TR>
+<TD>
+<TR><TD width="100%"><CENTER>
+<P><a href="http://www.free-web-browsers.com"><img src="http://www.free-web-browsers.com/webbrowser.gif" alt="Learn How To Remove About:Blank and Search Hijackers" border="0"></a></P>
+
+<FONT COLOR="#00FFFF"><H1>HTTP 404 Not Found</H1></FONT>
+<P><P><FONT face=Arial size=2><FONT COLOR="#00FFFF">
+
+<BR><BR>
+<!-- <form action="http://www.free-web-browsers.com/cgi-bin/support.pl" method="post">
+  <input type="hidden" name="redirect"
+  value="http://www.free-web-browsers.com/thank_you.html"> -->
+<TABLE BORDERCOLOR="#000080" BORDER=0>
+
+
+<P>Sorry, the page you're looking for could not be found. Try searching this site or choose one of the links below.<BR><BR>
+<FORM ACTION="http://search.freefind.com/find.html" METHOD="GET"  target="_self">
+<FONT face="arial,helvetica" >Search : 
+<INPUT TYPE="HIDDEN" NAME="id" VALUE="7535326">
+<INPUT TYPE="HIDDEN" NAME="pageid" VALUE="r">
+<INPUT TYPE="HIDDEN" NAME="mode" VALUE="ALL">
+<INPUT type="HIDDEN" name="n" value="0">
+<INPUT TYPE="TEXT" NAME="query" SIZE="15"><small> 
+<INPUT TYPE="SUBMIT" VALUE=" Find "><br>
+</small></font></FORM>
+
+</P>
+<BR><BR>
+</TABLE>
+
+</TD></TR></TABLE>
+</TD></TR></TABLE>
+</TD></TR></TABLE>
+</TD></TR></TABLE></td></tr></table></TD></TR></TABLE>
+<CENTER>
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+</CENTER>
+<DIV CLASS="menbar1" ID="menbar1" STYLE="position:absolute;top:1;visibility:show;display:none" zIndex="1000" ALIGN="left">
+<table   border="1" cellpadding="6" cellspacing="0" bordercolor=#00ffff ><tr><td bgcolor="#00FFFF" width="112" background="robots.txt"><CENTER><A HREF="javascript:change(1)"><font color="#156F93" face="verdana, arial, helvetica" size="-1">Open Menu</font></A></CENTER></td></tr></table>
+</DIV>
+
+<DIV CLASS="menbar2" ID="menbar2" STYLE="position:absolute;top:1;visibility:show;" zIndex="1001" ALIGN="left">
+<table    bordercolor=#00ffff cellpadding="6" border="1" cellspacing="0" ><td bgcolor="#00FFFF" width="112" background="robots.txt"><center>
+<a href="javascript:change(2)"><FONT COLOR="#156F93" face="verdana, arial, helvetica" size="-1">Close Menu</FONT></a></center>
+</td></tr><tr><td bgcolor="#156F93" width="100%" background="http://www.free-web-browsers.com/moneykey/cellback2.gif"> 
+
+<font face="MS Sans Serif" size="-1">
+<a href="http://www.free-web-browsers.com" title="Free Web Browsers"><FONT color=#00ffff>Home</font></a> <BR>
+<A href="http://www.free-web-browsers.com/support/registry-cleaner.shtml" title="Registry Cleaner"><FONT color=#00ffff>Registry Cleaner</font></a> <BR>
+<a href="http://www.free-web-browsers.com/support.shtml" title="Support"><FONT color=#00ffff>Support</font></a> <BR>
+<script><!-- 
+document.write('   <A href="mail') ;
+document.write('to:') ;
+document.write('info' + '@') ;
+document.write('free-web-browsers.com' + '"><FONT color=#00ffff>Contact</font></A>  ') ;
+ // -->
+</script>
+</td><tr><td bgcolor="#00FFFF" width="112" background="robots.txt">
+<center><FONT COLOR="#156F93" face="verdana, arial, helvetica" size="-1"><NOBR>Privacy and Security</NOBR></FONT></center>
+</td></tr><tr><td bgcolor="#156F93" width="100%" background="http://www.free-web-browsers.com/moneykey/cellback2.gif"> 
+<font face="MS Sans Serif" size="-1">
+<a href="http://www.free-web-browsers.com/browser_extensions.shtml" title="Browser Toolbars"><FONT color=#00ffff>Browser Toolbars</font></a> <BR>
+<a href="http://www.free-web-browsers.com/remove-toolbar.shtml" title="Remove Toolbar"><FONT color=#00ffff>Remove Toolbar</font></a> <BR> 
+<a href="http://www.free-web-browsers.com/support/browser-hijackers.shtml" TITLE="Browser Hijackers"><FONT color=#00ffff>Browser Hijackers</font></a> <BR>
+<a href="http://www.free-web-browsers.com/remove-about-blank.shtml" title="About:Blank"><FONT color=#00ffff>About:Blank</font></a> <BR>
+<a href="http://www.free-web-browsers.com/support/remove-search.shtml" title="Remove Search"><FONT color=#00ffff>Remove Search</font></a> <BR>
+<a href="http://www.free-web-browsers.com/support/remove-spyware-adware.shtml" title="Remove Spyware"><FONT color=#00ffff>Remove Spyware</font></a> <BR>
+<a href="http://www.free-web-browsers.com/your-computer-is-infected.shtml" title="Your Computer Is Infected"><FONT color=#00ffff>Your Computer Is Infected</font></a> <BR>
+<a href="http://www.free-web-browsers.com/your-system-is-infected.shtml" title="Your System Is Infected"><FONT color=#00ffff>Your System Is Infected</font></a> <BR>
+<a
+href="http://www.free-web-browsers.com/webwatcher.shtml" title="Remove WebWatcher"><FONT color=#00ffff>WebWatcher</font></a> <BR>
+<a href="http://www.free-web-browsers.com/support/remove-mysearch.shtml" title="Remove MyWebSearch"><FONT color=#00ffff>MyWebSearch</font></a> <BR>
+</td></tr></table>
+</DIV>
+<script language="Javascript1.2"> 
+<!--
+// original content taken from Nic's JavaScript Page with permission
+// lack of these three lines will result in copyright infringment
+// made by: Nic's JavaScript Page - http://www.javascript-page.com
+
+var JX = 0;
+var JY = 0;
+var wm;
+
+if (document.layers){
+wm = document.menbar1;
+}
+
+if (document.all) {
+wm = document.all.menbar1;
+}
+
+function change(wow) {
+
+  if (document.layers){
+    if (wow == 1) {
+      wm.visibility = "hide";
+      wm = document.menbar2;
+    }
+    if (wow == 2) {
+      wm.visibility = "hide";
+      wm = document.menbar1;
+    }
+  }
+
+  if (document.all){
+    if (wow == 1) {
+      wm.style.display = "none";
+      wm = document.all.menbar2;
+    }
+    if (wow == 2) {
+      wm.style.display = "none";
+      wm = document.all.menbar1;
+    }
+  }
+menubar();
+}
+
+function menubar() {
+
+ if (document.layers){
+   JX = window.pageXOffset;
+   JY = window.pageYOffset;
+   wm.visibility = "hide";
+   wm.top = JY;
+   wm.left = JX;
+   wm.visibility= "show";
+ }
+
+ if (document.all){
+  if (navigator.appVersion.indexOf("Mac") == -1){
+   wm.style.display = "none";
+   JX = document.body.scrollLeft;
+   JY = document.body.scrollTop;
+   wm.style.top  = JY;
+   wm.style.left = JX;
+   wm.style.display = "";
+  }
+ }
+}
+
+menubar();
+
+//-->
+</script>
+
+<SCRIPT><!--
+function promote(title){
+
+	index=title.indexOf(",");
+	if (index <= 1) {index = title.length}; 
+	info=window.open("","free_web_browsers","toolbar=no,width=700, height=250,directories=no,status=no,scrollbars=no,resize=yes,menubar=no,location=no");
+	info.document.open();
+	info.document.write('<HTML><HEAD></HEAD><BODY><CENTER>Cut and Paste HTML for your website:<BR><FORM><TEXTAREA NAME=uninstall ROWS=3 COLS=75 onFocus="uninstall.select();"><a href="'+info.document.location.href+'" title="'+title.substring(0,index)+'" target="_blank">'+title.substring(0,index)+'</a></TEXTAREA></FORM><P>Right click in the text box to copy the HTML</P><P>You are welcome to change the text as you please, and many thanks in advance!</P></CENTER></BODY></HTML>');
+	info.document.close();
+	return true;
+}
+
+// -->
+</SCRIPT><CENTER>
+<TABLE border=0 cellPadding=0 cellSpacing=0 width="715"><TR><TD bgColor=#156f93 align=middle background="http://www.free-web-browsers.com/moneykey/cellback2.gif"><font face="MS Sans Serif" size="-1"><P align=center><FONT color=#ffffff><NOBR>|  <a  
+href="http://www.free-web-browsers.com" title="Free Web Browsers"><FONT color=#00ffff>Home</font></a> | 
+<a  href="http://www.free-web-browsers.com/faq.shtml" title="Free Web Browsers Privacy Policy and Terms of Service"><FONT color=#00ffff>Terms Of Use</font></a> | <a 
+href="http://www.free-web-browsers.com/support.shtml" target="_blank" title="Support"><FONT color=#00ffff>Support</font></a>  
+<script><!-- 
+if ((navigator.appName == "Microsoft Internet Explorer") && (parseInt(navigator.appVersion) >= 4)) {
+	var url=document.location.href;
+	var title2=document.title; 
+	document.write(' | <A HREF="javascript:window.ext');
+	document.write('ernal.AddFavorite(url,title2);" ');
+	document.write('onMouseOver=" window.status=');
+	document.write("'Add to Favorites'; return true ");
+	document.write('"onMouseOut=" window.status=');
+	document.write("' '; return true ");
+	document.write('" title="Add to Favorites"><FONT color=#00ffff>Favorites</font></a>');
+}
+ // -->
+</script>
+<script><!-- 
+document.write(' | <A href="mail') ;
+document.write('to:') ;
+document.write('info' + '@') ;
+document.write('free-web-browsers.com' + '"><FONT color=#00ffff>Contact</font></A> | ') ;
+ // -->
+</script></NOBR>
+</FONT></TD></TR></TABLE>
+<TABLE border=0 cellPadding=0 cellSpacing=5 width="430"><TR><TD align=middle>
+<!-- AddThis Button BEGIN -->
+<div class="addthis_toolbox addthis_default_style ">
+<a class="addthis_button_facebook_like" fb:like:layout="button_count"></a>
+<a class="addthis_button_facebook_send"></a>
+<a class="addthis_button_tweet"></a>
+<a class="addthis_button_google_plusone" g:plusone:size="medium"></a>
+<a class="addthis_counter addthis_pill_style"></a>
+</div>
+<script type="text/javascript">var addthis_config = {"data_track_addressbar":true}; var addthis_config ={   data_track_textcopy: true}</script>
+<script type="text/javascript" src="http://s7.addthis.com/js/250/addthis_widget.js#pubid=freebrowsers"></script>
+<!-- AddThis Button END --></TD></TR></TABLE>
+ </CENTER></CENTER></CENTER>
+<P></BODY></HTML>
