@@ -96,7 +96,7 @@
 * []()
 * [Nature子刊：大学成绩高 爹妈基因好](http://www.886bl.com/bl/9307/800493.html)
 * [多动症和抑郁症存在的意义，或许是为了人类的延续](http://justrun.thisistap.com/2018/11/07/%E5%A4%9A%E5%8A%A8%E7%97%87%E5%92%8C%E6%8A%91%E9%83%81%E7%97%87%E5%AD%98%E5%9C%A8%E7%9A%84%E6%84%8F%E4%B9%89%EF%BC%8C%E6%88%96%E8%AE%B8%E6%98%AF%E4%B8%BA%E4%BA%86%E4%BA%BA%E7%B1%BB%E7%9A%84%E5%BB%B6/)：“蒲公英-兰花”理论
-* [为什么男孩子尿尿只要21秒，40岁以上的叔叔却要花更长时间？]()：搞笑诺贝尔合集，搞笑科研经费
+* [为什么男孩子尿尿只要21秒，40岁以上的叔叔却要花更长时间？](https://mp.weixin.qq.com/s?src=11&timestamp=1541644657&ver=1231&signature=9bv9h8dlCwcD3PvPAKK6ZDTqBts86W7iRdb46VBJZm3ZNh8VzGMx0Wu13p9ZxZGuXhkbbKMmZmheYtsOCf1WuzPdzhV0ox0gWWYMammB-P7AqlBtsHHG0*MJE6rZdj93&new=1)：搞笑诺贝尔合集，搞笑科研经费
 * [为什么洗澡水砸不死蚊子？](https://mp.weixin.qq.com/s?src=11&timestamp=1541635309&ver=1231&signature=9bv9h8dlCwcD3PvPAKK6ZDTqBts86W7iRdb46VBJZm1XFZNGrmOclfb4jBF6IvB*cYj1JTK1faS9yaky1jlcmAbWcj8UkBGn5LAXuT8bF6IyW2IsO6ZptVjUZdAr7m*1&new=1)
 * []()
 * []()
