@@ -100,8 +100,8 @@
 * [为什么洗澡水砸不死蚊子？](https://mp.weixin.qq.com/s?src=11&timestamp=1541635309&ver=1231&signature=9bv9h8dlCwcD3PvPAKK6ZDTqBts86W7iRdb46VBJZm1XFZNGrmOclfb4jBF6IvB*cYj1JTK1faS9yaky1jlcmAbWcj8UkBGn5LAXuT8bF6IyW2IsO6ZptVjUZdAr7m*1&new=1)
 * [童年回忆里的这种圆滚滚的虫虫，居然有鲜为人知的强迫症](https://mp.weixin.qq.com/s?src=11&timestamp=1542327727&ver=1247&signature=aKLKMSWLWyYwATy8hUlQuqGdoUx9uAcMdTsPF9fw0vMuZsp5Dlg9O02TmrVRQBsoSUBvNoSHq7iuuqupnqW7t0OON747p4TxnN3UGphX2XeSXAAvDGaI8wEF*qOx6z42&new=1)：动物在迷宫中的这种左转右转不断交替的行为，叫做迷宫自发交替行为（spontaneous alternation behavior）。
 * [一辈子这么短，他们为什么要用几个世纪来做实验？](https://mp.weixin.qq.com/s?src=11&timestamp=1542849956&ver=1259&signature=XuYRjQjFdRQ-*UUWJEy2n4mH1u4I1hj4tkG9Q-FzXtLG-ZoufX2nf3bJOiQ*2Qs3GRKYr3q1eY44HbzunrAJOR2WcgYvPWYdi0Ypn-cYM9wktdH*nFXZ4qeYu2ZDTwUZ&new=1):沥青低落实验
-* []()
-* []()
+* [这个风靡30年的儿童未来预测，不过证明了富裕家庭的孩子更能忍](https://mp.weixin.qq.com/s?src=11&timestamp=1546396978&ver=1317&signature=aW1QtHxD1Akpb1dFsW8uCvz*vO4SNrc8CkpYA0AXnw54xHH8aANqCYlvhgOcENtW3OXroyBccw4BYRE3V8iF0EfOGR758N0jQG-h5Wemu-DbglHq81yTeExpuIDsYPyC&new=1):棉花糖测试
+* [6岁前的儿童怎么看世界的？科学家说比较像老鼠](https://mp.weixin.qq.com/s?src=11&timestamp=1546397041&ver=1317&signature=aW1QtHxD1Akpb1dFsW8uCvz*vO4SNrc8CkpYA0AXnw76alZN09IctFfoo7rwpC0ap2wIniFxEWWUANHfRFGZxbQo*POMZAeYvGf4YK0kGegz4dEJrd7TyTsl4cwSwrqB&new=1)
 * []()
 * []()
 * []()
