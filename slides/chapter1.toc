@@ -1,0 +1,6 @@
+\beamer@sectionintoc {1}{解析彩虹——归纳法}{4}{0}{1}
+\beamer@sectionintoc {2}{自由落体——头脑风暴}{15}{0}{2}
+\beamer@sectionintoc {3}{多普勒效应——以音代光}{21}{0}{3}
+\beamer@sectionintoc {4}{运动定律——直觉与科学}{28}{0}{4}
+\beamer@sectionintoc {5}{咖啡因——科学典范}{36}{0}{5}
+\beamer@sectionintoc {6}{史海撷华——真正的疯狂}{40}{0}{6}
