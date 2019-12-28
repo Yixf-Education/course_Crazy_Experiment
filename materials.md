@@ -107,9 +107,9 @@
 * [这个实验，让人类等了一百年](https://new.qq.com/omn/20181221/20181221A01628.html):沥青低落实验
 * [从前有个学生熬夜迟到了，错把困扰数学家的难题当作业做了出来](https://user.guancha.cn/main/content?id=94396)：突破思维定式
 * [历史上那些"作死"的科学家：都是“疯子”！](https://mp.weixin.qq.com/s?src=11&timestamp=1561938877&ver=1701&signature=c59Jvi9YUxjEvmtk5CMn6Umfy7lI2S8y5DVP1joj*z0qRoREDSggwWzxvlIUxcylvqfMG6Y1772QdicsKHmLyR0C1CNgUlPwa7w8xLSHwQWe5UoOD*tfJFmEYqec-V0M&new=1)
-* []()
-* []()
-* []()
+* [心理学的 166 个效应大全（一）](https://www.douban.com/group/topic/4940262/)
+* [心理学的 166 个效应大全（二）](https://www.douban.com/group/topic/4940330/)
+* [心理学的 166 个效应大全（三）](https://www.douban.com/group/topic/4940396/)
 * []()
 * []()
 * []()
