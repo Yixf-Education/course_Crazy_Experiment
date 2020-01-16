@@ -94,7 +94,7 @@
 * [女人生完孩子细胞老11年？](http://chuansong.me/n/2219477151013)
 * [2017年14个最奇葩的研究，看看科学家们又双叒叕搞什么事情](http://chuansong.me/n/2209709751630)
 * [为什么学霸不在乎智商，反而是学渣把智商看得很重？](https://mp.weixin.qq.com/s?src=11&timestamp=1547424673&ver=1317&signature=aW1QtHxD1Akpb1dFsW8uCvz*vO4SNrc8CkpYA0AXnw4SKwujQwbNvzbZFwtD-8l9cP24gTL0P46mJJfu81G9OTqMxKwffJb9LLb1RYIFzVsv96dujFz7Fdm5lGbnDEGG&new=1)
-* []()
+* [珍惜冬天，10 年前科学家才明白这是最容易减肥的季节](https://mp.weixin.qq.com/s?__biz=MzA3MzE3NTg1OA==&mid=2247520351&idx=1&sn=c4d01816bfd210ecf3389064909aaed8&chksm=9f11d602a8665f14b67a990c95ff2b96b5a395f938e2ad5f64f8499145d67c5d744981c724ef&mpshare=1&scene=1&srcid=&sharer_sharetime=1579128138621&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
 * [Nature子刊：大学成绩高 爹妈基因好](http://www.886bl.com/bl/9307/800493.html)
 * [多动症和抑郁症存在的意义，或许是为了人类的延续](http://justrun.thisistap.com/2018/11/07/%E5%A4%9A%E5%8A%A8%E7%97%87%E5%92%8C%E6%8A%91%E9%83%81%E7%97%87%E5%AD%98%E5%9C%A8%E7%9A%84%E6%84%8F%E4%B9%89%EF%BC%8C%E6%88%96%E8%AE%B8%E6%98%AF%E4%B8%BA%E4%BA%86%E4%BA%BA%E7%B1%BB%E7%9A%84%E5%BB%B6/)：“蒲公英-兰花”理论
 * [为什么男孩子尿尿只要21秒，40岁以上的叔叔却要花更长时间？](https://mp.weixin.qq.com/s?src=11&timestamp=1541644657&ver=1231&signature=9bv9h8dlCwcD3PvPAKK6ZDTqBts86W7iRdb46VBJZm3ZNh8VzGMx0Wu13p9ZxZGuXhkbbKMmZmheYtsOCf1WuzPdzhV0ox0gWWYMammB-P7AqlBtsHHG0*MJE6rZdj93&new=1)：搞笑诺贝尔合集，搞笑科研经费
