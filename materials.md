@@ -112,7 +112,7 @@
 * [心理学的 166 个效应大全（三）](https://www.douban.com/group/topic/4940396/)
 * [论如何科学地倒牛奶](https://mp.weixin.qq.com/s?__biz=MzA3MzE3NTg1OA==&mid=2247520725&idx=1&sn=1e227863591f512f03fc0c5517a4d059&chksm=9f11d788a8665e9e82e5a03df1cdd3a9389f7966828a2a053e3e198b9ffd0a0f1ac0bf2c4cb8&mpshare=1&scene=1&srcid=&sharer_sharetime=1580948928180&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
 * [因为 2 万人自愿被感染，首个人类冠状病毒才被发现](https://mp.weixin.qq.com/s?__biz=MzA3MzE3NTg1OA==&mid=2247520597&idx=1&sn=9844443a6e1dd5a786a24c56e9f4a89e&chksm=9f11d708a8665e1ed39c526ba0f5acfc16fda301b4ee51f6693c570d07e762b996efe87f4b19&mpshare=1&scene=1&srcid=&sharer_sharetime=1580343591889&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
-* []()
+* [神奇十小时法则 | 如何科学地避免 “每逢佳节胖三斤”？](https://mp.weixin.qq.com/s/ccvNa5qQmQlO6TQ4c0ydDw)
 * []()
 * []()
 * []()
