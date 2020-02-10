@@ -115,7 +115,7 @@
 * [神奇十小时法则 | 如何科学地避免 “每逢佳节胖三斤”？](https://mp.weixin.qq.com/s/ccvNa5qQmQlO6TQ4c0ydDw)
 * [为了欺骗，它们学会了变声、“虚假高潮” | 动物界的骗子高手](https://mp.weixin.qq.com/s?__biz=MjM5NDA1Njg2MA==&mid=2651999840&idx=1&sn=3a59513f05db775bf38d9093ddd1cb40&chksm=bd6b71938a1cf88549775de8bbf486078f7580eb408b89cb543f26f1159d316d6bb26cafc0af&mpshare=1&scene=1&srcid=&sharer_sharetime=1581168350035&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
 * [用大便做了一把菜刀](https://mp.weixin.qq.com/s?__biz=MzA3MzE3NTg1OA==&mid=2247520747&idx=1&sn=7666c7670f25d13aa6fb6c750dbeaf8c&chksm=9f11d7b6a8665ea0e5ef9ee46c06ba64961241fec987ba6d05b7a2110c06495db103527b97fa&mpshare=1&scene=1&srcid=&sharer_sharetime=1581208884742&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
-* []()
+* [鸟屎 + 石墨烯 = SCI 论文，华人学者用实验数据硬核讽刺，学术期刊灌水何时休](https://mp.weixin.qq.com/s?__biz=MzA3MTM3NTA5Ng==&mid=2651063421&idx=4&sn=59f4b0b120864c1509c5af3f9b8d1e35&chksm=84de25eab3a9acfcc2a6ba3809443c43d4bf7a5d822cce327eb3f39b632a36d9db9448f213ea&mpshare=1&scene=1&srcid=&sharer_sharetime=1581315374852&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
 * []()
 * []()
 * []()
