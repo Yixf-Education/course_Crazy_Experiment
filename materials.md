@@ -187,7 +187,7 @@
 * [人类卵子对某些精子情有独钟，还会施以额外 “恩惠”](https://www.linkresearcher.com/theses/7437270d-e273-42c0-91e5-ae635edac865)
 * [科学 60 秒：泄密的时候，为什么会如释重负？](https://www.linkresearcher.com/careers/6abcd54c-a15d-4b79-a111-b625814f14cb)
 * [科学 60 秒：“哈哈” 和 “呵呵”，什么情况下才表示大笑](https://www.linkresearcher.com/careers/18a667bd-eda4-440a-9c7b-61fba0235285)
-* []()
+* [为什么学渣常觉得自己考得不错，学霸老觉得自己考砸了？](https://mp.weixin.qq.com/s?__biz=MzU2MDQ5Mzc3MQ==&mid=2247504014&idx=1&sn=6503c9cdd0fd1857d4ef293969298e83&chksm=fc05b52acb723c3c3ef7f5084cc9b8338121ac94caa176b0eda539bb8a4f6af0b408f2d2f63a&mpshare=1&scene=1&srcid=0728x6p4IgP1aThCFmhaWq29&sharer_sharetime=1595904478091&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
 * []()
 * []()
 * []()
