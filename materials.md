@@ -210,6 +210,6 @@
 * [为什么没有一只猫能活着走出实验室？](https://mp.weixin.qq.com/s?__biz=MjM5MDE3OTk2Ng==&mid=2657496371&idx=4&sn=87c211c6b9dc5da20dc7804eb7ae3925&chksm=bdda3a228aadb33440f84b7fbd38169b019c2b9cdc734ddb795b710ea0c4f27bd9d253b31f2c&mpshare=1&scene=1&srcid=0823jrZiYnHm5KJfpw14ViaF&sharer_sharetime=1598138198689&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)：实验设计，拓展思维，万法归宗
 * [这道小学题，竟然比心理阴影面积还难算](https://mp.weixin.qq.com/s?__biz=MzU2MDQ5Mzc3MQ==&mid=2247504927&idx=1&sn=0cd7cb8ee98f2a6e702cdb8672e8fa88&chksm=fc05b1bbcb7238ad47a8fc34e27e0f9e7128d3285d7caf9b3bb0b6e7db953bc807777aa63fff&mpshare=1&scene=1&srcid=0823duT03MI1l1zxXa477M6c&sharer_sharetime=1598179436286&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)：不同视角，不同方案
 * [你以为的灵感枯竭，很可能只是一种错觉](https://www.linkresearcher.com/theses/dff21ca5-92eb-405f-8604-340f3e634ee1)
-* []()
+* [坐着不动却每天掉肉 2 斤，这种脑力竞技和马拉松一样燃脂](https://mp.weixin.qq.com/s?__biz=Mzk0NzAyMzgzOQ==&mid=2247519938&idx=1&sn=9e73a3328528f559f1a86f585cc23941&chksm=c37ff472f4087d64354a521ce6508d675aa62bfd9e569867c159947c5319be3f0f5506fcf98d&mpshare=1&scene=1&srcid=0827A5p2if5SGUxG9uPee6o9&sharer_sharetime=1598486303498&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
 * []()
 
