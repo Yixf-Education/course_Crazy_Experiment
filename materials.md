@@ -212,7 +212,7 @@
 * [你以为的灵感枯竭，很可能只是一种错觉](https://www.linkresearcher.com/theses/dff21ca5-92eb-405f-8604-340f3e634ee1)
 * [坐着不动却每天掉肉 2 斤，这种脑力竞技和马拉松一样燃脂](https://mp.weixin.qq.com/s?__biz=Mzk0NzAyMzgzOQ==&mid=2247519938&idx=1&sn=9e73a3328528f559f1a86f585cc23941&chksm=c37ff472f4087d64354a521ce6508d675aa62bfd9e569867c159947c5319be3f0f5506fcf98d&mpshare=1&scene=1&srcid=0827A5p2if5SGUxG9uPee6o9&sharer_sharetime=1598486303498&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
 * [超 10 万人的大型研究发现：爱 “追剧” 的人患抑郁症风险更高...](https://mp.weixin.qq.com/s?__biz=MzIwMzA1MzU5Mg==&mid=2652144333&idx=1&sn=b4e4a4503afb570c2272329390686ceb&chksm=8d356dbaba42e4ac14fb38f9d64ea1689304884417a560e4e10a8787c81d8a6d1be162a845ad&mpshare=1&scene=1&srcid=0828vzuksCVBJe3jmpaOnsaM&sharer_sharetime=1598579481685&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
-* []()
+* [别再吼孩子骂孩子了，他们的脑子真的会受伤变形](https://mp.weixin.qq.com/s?__biz=MzI5MTcwNjA4NQ==&mid=2247497190&idx=1&sn=0ceb4e71d19be5a3ba5ff1423d017cce&chksm=ec0e306cdb79b97af84dab2fcb364bba3636e8379194278749e0848670518c58dd01a78e3133&mpshare=1&scene=1&srcid=083085EmAcunySEzG7mwGOyC&sharer_sharetime=1598755170842&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
 * []()
 * []()
 * []()
