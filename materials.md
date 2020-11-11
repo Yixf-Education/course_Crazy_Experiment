@@ -235,7 +235,7 @@
 * [“爱因斯坦兄弟” 事件轰动纽约时报！双胞胎乱写博士论文，整容后越黑越红，竟然名利双收.......](https://mp.weixin.qq.com/s?__biz=MjM5MDE3OTk2Ng==&mid=2657511431&idx=1&sn=eda872bbc9ae3ca50a8fd8f053dd254b&chksm=bdda7f168aadf60096025ac1e1017823072b99a76f9d398cf36e4d56f1aa9142282e55774592&mpshare=1&scene=1&srcid=1109RU9RDqqOOTKr0hyiIP1D&sharer_sharetime=1604923063330&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
 * [进入社会后开始 “自闭”？这其实是走向成熟的表现](https://mp.weixin.qq.com/s?__biz=Mzk0NzAyMzgzOQ==&mid=2247524040&idx=1&sn=6628ddd3678fb9c0042078e8dadc72d8&chksm=c37fe478f4086d6e464c08afd07acd06c6c7314a7577988810db9e78bca404a2acf96ca384d7&mpshare=1&scene=1&srcid=1109E31VYsaXRG74kN3d4xdl&sharer_sharetime=1604922963972&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
 * [边玩电脑边刷手机，正在让无数年轻人记忆衰退](https://mp.weixin.qq.com/s?__biz=Mzk0NzAyMzgzOQ==&mid=2247523927&idx=1&sn=9bfb9c4aba29243ebb5f74312cce77eb&chksm=c37fe4e7f4086df1dac55570c6407c2e484f464ae93f34ddd35dc83e7b1bc8631fe2f43a9942&mpshare=1&scene=1&srcid=11062o1T1dqHaLL5AMf4q2s0&sharer_sharetime=1604634951994&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
-* []()
+* [100 个实验只能验证 36 项，心理学还靠谱吗？](https://mp.weixin.qq.com/s?__biz=MjM5NDA1Njg2MA==&mid=2652011249&idx=2&sn=586b05e8a47b104146183ca2f951bdc2&chksm=bd6b45028a1ccc14356869ed82952c8a6ac11913017b575b0de33cb6bd930cb1b581056102c7&mpshare=1&scene=1&srcid=1110mfWUBwuMTGlS0767Em1w&sharer_sharetime=1605048399935&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
 * []()
 * []()
 * []()
