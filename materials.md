@@ -241,7 +241,7 @@
 * [闻了闻男性害怕时流下的汗，她们露出了这样的表情｜科学 60 秒](https://mp.weixin.qq.com/s?__biz=MjM5NDA1Njg2MA==&mid=2652012417&idx=2&sn=5d8ebffa1311d8ed620d2e5b0759b170&chksm=bd6b40728a1cc964559bca63a036883beb6461b9a2361f4945792490ced1ab0eed9aef55c3c9&mpshare=1&scene=1&srcid=1206vv9p1UEGAfEzcaTmfaOV&sharer_sharetime=1607215391170&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
 * [广告篡改着你的记忆｜科学 60 秒](https://mp.weixin.qq.com/s?__biz=MjM5NDA1Njg2MA==&mid=2652012737&idx=2&sn=573f8cb77e9a641499490e9d1207990e&chksm=bd6bbf328a1c3624c2dfca0d4672accadb47961f213f26860f94a3537e516f90d8a6f59738cf&mpshare=1&scene=1&srcid=1212TyhUZDqrCoxbYXKmBmaP&sharer_sharetime=1607777972796&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
 * [数学好＝编程能力强？MIT 新发现：二者激活大脑区域并不同](https://mp.weixin.qq.com/s?__biz=MjM5NDA1Njg2MA==&mid=2652013276&idx=3&sn=79e29b8c98836740db219edbf7221cf6&chksm=bd6bbd2f8a1c3439f53c55bba209c6a66af110a45e777ff653df4fe1502475f5316747afc2dd&mpshare=1&scene=1&srcid=1222m1I5Vdvw8AbYjh7nGO3D&sharer_sharetime=1608674886356&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
-* []()
+* [为了治胃溃疡，他喝下了自制的细菌汤](https://mp.weixin.qq.com/s?__biz=MzAwMzc2MTA4Ng==&mid=2247508146&idx=1&sn=3b26ff4f3a76755c069a5ac99c125d63&chksm=9b34d663ac435f75bc744748b395efdf3c0c3c3de58b04a8365fe1881b94d460c578a8413ec5&mpshare=1&scene=1&srcid=1225rff4i55UtL0QPpr9D5T2&sharer_sharetime=1608897359509&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
 * []()
 * []()
 
