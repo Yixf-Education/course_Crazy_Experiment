@@ -272,6 +272,13 @@
 * [科学 60 秒：中年危机究竟来自社会，还是我们的心理？](https://www.linkresearcher.com/careers/8506b5c7-a1b6-41d1-b5f4-3ab06cc9aa35)
 * [婴儿时的我们可真聪明](https://mp.weixin.qq.com/s?__biz=MzAwNTA5NTYxOA==&mid=2650984130&idx=1&sn=a5804bd37c1af124b3d85192088b875a&chksm=80d7876fb7a00e79466d7c3adc69b84c411a90b24b6ae9e528160dcc689f94b00daac2e32521&mpshare=1&scene=1&srcid=0331lc6HYactPJxwtUKiGqAh&sharer_sharetime=1617170155589&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=2aa077da30b3beb280b304bebf91a379b6629ba9bacf3b22c4e909347650229e15484f09ce08c92813a3c14bfd7f511fe8b11712d3566076501e07c0329dc5cc19f5bbf2e75fffa037a52b11438c37bb37576c79348598e85c1ad4bf5318670ec82ccab37e0ec98de2865105ff35418681e19049ccbc35fe00fe571dca8387e2&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+7&version=62090529&lang=en&exportkey=ARZbpsIHjZkOjHm3%2BG4Y6Oo%3D&pass_ticket=oWqxqWDCD8OYUK4AxJ3rMfzAApr6n24aMc3NjV%2BbJ78UEaofbRT37TahVobQ%2FEwk&wx_header=0)
 * [起底 60 年代 CIA “脑机接口” 实验！把电极植入大脑遥控狗，一只受 2000 次电击后死亡](https://mp.weixin.qq.com/s?__biz=MjM5MTQzNzU2NA==&mid=2651698077&idx=1&sn=66b3d2a77f250fea505861d4f76928f0&chksm=bd4c940e8a3b1d18baca9ab3b6b769950df72c593dc31849b6fe56eaf3b3cf638f521bf4bbaa&mpshare=1&scene=1&srcid=0331mLJvZUbnZjcLaJqtC9nh&sharer_sharetime=1617181802727&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=c4b23c3bf06071337075df0dfb786e4807230178460e188f74f813467ddab3ccde0746f71dc022ec539b01e96627ba0d9752eede9ed7c612d5c77663f5efcf8424b9b809118ab0275554a05bcb82f688411061fae6cdad5960a910558e88e206627034e81b0b66e9f84a8a455a3fe620541ca8a10574b2e92b1033f2791dd731&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+7&version=62090529&lang=en&exportkey=AQFmkdbzSKMyR1e8sOqU3zI%3D&pass_ticket=jWa%2BgbLHluiTlersEim4kKdat03yGHrfxYrQ17pzn4uhvnji8fXKmkF%2Bv3IVRxmh&wx_header=0)
+* [为什么越是傻 X 的人，越有一股谜之自信](https://mp.weixin.qq.com/s?__biz=MzU4Mjg2OTI2MA==&mid=2247643280&idx=2&sn=30dac8da1be2ac89b2fd110a94002d65&chksm=fdbd38f3cacab1e5fd928539d116f054339441fc48e944ed2196a316a4672c26530f4a740e32&mpshare=1&scene=1&srcid=0401pTWKwJ09NXTklDE1ndh7&sharer_sharetime=1617254258011&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=8ad0ea50d7c773517cc26d1dafd0b4771fc56ed036a10097a89d52da639ba4daba5b16710f8084ca0ad312abe7707b77542ff633c973a8ca09edc7021e747c291a23dd25d373d2c48bc1f15d327a4430b90be77542f5e6f58575a79aac64cf679bf04070b03b965fed19517f852bf889957ad0aa1aea30cc6c7884c88d2846e0&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+7&version=62090529&lang=en&exportkey=AarxXYV%2FvwclMMPgXPjMpOE%3D&pass_ticket=jWa%2BgbLHluiTlersEim4kKdat03yGHrfxYrQ17pzn4uhvnji8fXKmkF%2Bv3IVRxmh&wx_header=0)
+* []()
+* []()
+* []()
+* []()
+* []()
+* []()
 * []()
 * []()
 
