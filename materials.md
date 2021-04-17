@@ -278,7 +278,7 @@
 * [导师的要求为啥总是越提越多？最新《自然》封面研究有了解释……](https://www.linkresearcher.com/theses/9a13e761-128e-4942-83e8-9d749ba488a1)
 * [科学 60 秒：运动时听到的加油打气，会让你更快力竭](https://www.linkresearcher.com/careers/6c4c0f8c-40dd-4e1e-839a-6abe6ab30177)
 * [科学 60 秒：越贵的药，效果真的越好](https://www.linkresearcher.com/careers/ad51c464-3e88-4d6b-9ae7-5de379b76759)
-* []()
+* [面对金钱的诱惑，人们不诚实的方式竟如此之多](https://www.linkresearcher.com/theses/53bc8eca-3051-4e2e-85eb-6e417c0ffc8c)
 * []()
 * []()
 
