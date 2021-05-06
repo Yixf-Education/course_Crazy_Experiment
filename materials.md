@@ -279,6 +279,8 @@
 * [科学 60 秒：运动时听到的加油打气，会让你更快力竭](https://www.linkresearcher.com/careers/6c4c0f8c-40dd-4e1e-839a-6abe6ab30177)
 * [科学 60 秒：越贵的药，效果真的越好](https://www.linkresearcher.com/careers/ad51c464-3e88-4d6b-9ae7-5de379b76759)
 * [面对金钱的诱惑，人们不诚实的方式竟如此之多](https://www.linkresearcher.com/theses/53bc8eca-3051-4e2e-85eb-6e417c0ffc8c)
+* [沉迷自己的美貌无法自拔？害，俺也一样！ | 论文频道 | 领研网](https://www.linkresearcher.com/theses/717afec0-73ad-4b3c-ad83-df2843f125d0)
+* [走进厨房不知干啥，如何摆脱 “门口效应”？ | 论文频道 | 领研网](https://www.linkresearcher.com/theses/d8be7b87-0154-4539-98af-5df27964a0af)
 * []()
 * []()
 
