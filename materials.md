@@ -281,6 +281,10 @@
 * [面对金钱的诱惑，人们不诚实的方式竟如此之多](https://www.linkresearcher.com/theses/53bc8eca-3051-4e2e-85eb-6e417c0ffc8c)
 * [沉迷自己的美貌无法自拔？害，俺也一样！ | 论文频道 | 领研网](https://www.linkresearcher.com/theses/717afec0-73ad-4b3c-ad83-df2843f125d0)
 * [走进厨房不知干啥，如何摆脱 “门口效应”？ | 论文频道 | 领研网](https://www.linkresearcher.com/theses/d8be7b87-0154-4539-98af-5df27964a0af)
+* [谣言止于高情商者 | 论文频道 | 领研网](https://www.linkresearcher.com/theses/a6090c5b-341f-43b1-abd1-a78841da7f92)
+* [91 分真的比 89 分优秀很多吗？ | 论文频道 | 领研网](https://www.linkresearcher.com/theses/ce27155d-e5c9-4f07-a6e8-a5ad60911977)
+* [如何判断自己的态度是否 “三分钟热度”？ | 论文频道 | 领研网](https://www.linkresearcher.com/theses/f54fb793-9827-4a00-a74a-3090e52d25e7)
+* 
 * []()
 * []()
 
