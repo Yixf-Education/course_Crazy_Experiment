@@ -286,6 +286,7 @@
 * [如何判断自己的态度是否 “三分钟热度”？ | 论文频道 | 领研网](https://www.linkresearcher.com/theses/f54fb793-9827-4a00-a74a-3090e52d25e7)
 * [你看那猴子“笑”那么开心，它真的高兴吗？](https://mp.weixin.qq.com/s/vZXmpSzCCtvxK5EZNz0Wnw)
 * [旧东西总是舍不得扔？你可能得了这种病……](https://mp.weixin.qq.com/s/QMZAVLpufDS-gBeI0xjABg)
+* [猫子，视错觉的水太深，你把握不住。](https://mp.weixin.qq.com/s/g0SByP_lxBiSc39o_RJqlw)
 * []()
 * []()
 
