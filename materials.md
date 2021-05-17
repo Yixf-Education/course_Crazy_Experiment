@@ -1,292 +1,586 @@
 * [女生理科比男生差吗？全球160万人的成绩单给出了这样的答案]()
+
 * [当你往下跳的时候，是你的头先往下掉，还是脚先往下掉？](http://chuansong.me/n/2593115451026)
+
 * [这位同学，我看你成绩不太好，是不是朋友没交对？]()
+
 * [人类史上历时最长的人类发展研究结论：出生贫穷很难逆袭](http://chuansong.me/n/2552914751026)
+
 * [搞笑诺贝尔奖：除了搞笑，知道点别的也很有必要]()
+
 * [骗人的数学题，那消失的1块钱到底被谁拿走了]()
+
 * [统计学的套路有多深，从“HPV疫苗降低生育率”的研究错误说起]()
+
 * [打水漂的必胜秘诀已被研究出来了，学会后你可能会赢到没朋友](http://chuansong.me/n/2531277351028)
-* [别对孩子说“多读书将来可以挣大钱”，这会让他们更不爱学习]()
+
+* [别对孩子说“多读书将来可以挣大钱”，这会让他们更不爱学习点击下方空白处获得答案
+
+  B[]()
+
 * [做这事很爽但可能被妈打，但他们玩到极致后竟破解了困扰诺奖物理学家的难题](http://chuansong.me/n/2505294851035)
+
 * [4百万人的研究发现学历越高月容易生脑瘤，但这不是你不学习的理由]()
+
 * [你从小看到大的地图都是错的，世界的真实比例其实是这样的](http://chuansong.me/n/2436380751034)
+
 * [你这条命是空调给的，连你的智商也是呢](http://chuansong.me/n/2424105551018)
+
 * [经典实验接连遭质疑，心理学的“倒退”或许是进步]()
+
 * [为什么那么多成功人士和罪犯出生在单亲家庭里]()
+
 * [爸爸们不会患“产后抑郁”？永久降低的生殖欲望，就是爸爸为孩子做的最大牺牲]()
+
 * [我们真的需要戒烟戒酒吗？统计数据证明烟酒不沾的人寿命更短！]()
+
 * [10项研究告诉你，小时候没玩够的孩子长大后会失去什么](http://chuansong.me/n/2390543951026)
+
 * [忙到停不下来的脑子，怎么可能有创造力？]()
+
 * [现代社会的悖论，太干净导致儿童患癌风险增加]()
+
 * [心痛！请人家的孩子，大脑可能更小]()
+
 * [科学揭示：男人最吸引异性的地方是腿占身体的比例]()
+
 * [男女配对的真相：麻省理工告诉你]()
+
 * [为什么学渣常觉得自己考得不错，学霸老觉得自己考砸了？]()
+
 * [女生数学比男生差是缺乏雄性激素导致的吗？]()
+
 * [人为什么不能不犯困：我们无法摆脱这项在死亡风险下被进化保留的本能]()
+
 * [为什么外语片里的中文配音听起来那么违和？]()
+
 * [为什么“我爱你”和“对不起”用英语更容易说出口，但听起来不太真心？](http://chuansong.me/n/2390543651039)
+
 * [混得不好，不用自责：研究表明运气对成功的影像超乎你想象]()
+
 * [乌龟翻身那么痛苦，它们为什么还没有灭绝？](http://chuansong.me/n/2424106151020)
+
 * [为什么奥利奥扭开以后，夹心总是粘在其中一面上？](http://chuansong.me/n/2429707351023)
+
 * [你为什么这么聪明？这归功于你妈妈生下你时的痛苦](http://chuansong.me/n/2432809951023)
+
 * [夏天最作死的动作之一，就是在阳光下剥橙子柠檬](http://chuansong.me/n/2432809851022)
+
 * [吃瓜时节，我们用公式计算告诉你，如何科学地挑选西瓜！](http://chuansong.me/n/2457068251026)
+
 * [为什么你在游泳池里总情不自禁地想尿尿？](http://chuansong.me/n/2459801651919)
+
 * [一个64G的手机装满文件以后，会变重吗？](http://chuansong.me/n/2474917251020)
+
 * [18年全世界网友最爱搜索的伪科学，你中招了几个？](http://chuansong.me/n/2472476251024)
+
 * [为什么有些人在很吵的地方也能睡着，有些人却睡得很浅？](http://chuansong.me/n/2477597951026)
+
 * [蚊子给你扎针吸血时命中率高吗？真相让人留下了同情的泪水](http://chuansong.me/n/2517055751027)
+
 * [贫富家庭之间差的不仅仅是3千万词汇，还有他们说话的方式](http://chuansong.me/n/2512555551027)
+
 * [为什么肯德基和麦当劳喜欢开在一起，它们是傻吗？](http://chuansong.me/n/2523883251030)
+
 * [甩了个水瓶就一战成名还把水瓶卖了1.5万美元，这个高中生是怎么做到的？](http://chuansong.me/n/2595039351043)
+
 * [这些方法可以让大脑多长点神经元，你能做到几条？](http://chuansong.me/n/2575258651023)
+
 * [为什么大多数歌曲的长度都是3-5分钟？](http://chuansong.me/n/2569692251019)
+
 * [为什么香蕉味的东西吃起来不像真的香蕉？]()
+
 * [为什么一片面包发霉了整包都要扔掉，但是很多过期食品依然可以吃？](http://chuansong.me/n/2563643851531)
+
 * [看了这2个悖论以后有人头很痛，有人打开了新世界的大门，你是哪种？](http://chuansong.me/n/2550473351032)
+
 * [会说话的“杠精”更优秀，因此这个国家正在有意识地培养“杠精”](http://chuansong.me/n/2539481451030)
+
 * [便便时被水溅到屁股怎么班？教你科学压水花，成为厕所王者]()
+
 * [孩子沉迷手机和王者农药？斯坦福教授发明的网络成瘾法要的就是这个效果](http://chuansong.me/n/2498160851033)
+
 * [别再吼孩子骂孩子了，他们的脑子真的会受伤变形](http://chuansong.me/n/2486806851022)
+
 * [不上镜？拍的照片总不像真实的自己？你的感觉没有错](http://chuansong.me/n/2486806951031)
+
 * [暑假玩得很爽是吧？开学后你就会感到智商对你的疯狂打击报复了](http://chuansong.me/n/2472476451029)
+
 * [孩子犯错你只会打骂罚？这个风靡了30年的训狗法对人居然很有用]()
+
 * [你是那妈身上掉下来的肉，但你也留了很多细胞在她身体里陪她]()
+
 * [为什么同届小学生和初中生里，年纪大的孩子成绩往往更好？]()
+
 * [为什么你这代人比你爸妈那代人智商高？]()
+
 * [游泳池清新的味道，是因为里面有会很多尿]()
+
 * [为什么白天困得要死，到了晚上反而特别精神不想睡了？]()
+
 * [为什么脑科学说：你不给孩子讲故事唱儿歌，孩子长大后多半就会忘了你？]()
+
 * [生病的时候没有胃口竟然不是为了饿死病菌？那是为了什么？]()
+
 * [小学算术好，上了中学以后数学反而不好？你不知道算术是数学里的文科吗？]()
+
 * [小孩老说看到了大人看不到的东西，这是什么情况？](http://chuansong.me/n/2381103051023)
+
 * [做一台打豆豆机，了解自己的智商和身高的秘密](http://chuansong.me/n/2381103451029)
+
 * [你以为知道自己每天睡了多久，其实有时你根本不知道自己在白天睡着了](http://chuansong.me/n/2373669851032)
+
 * [专心致志的时候为什么会不自觉地吐舌头？](http://chuansong.me/n/2364032551019)
+
 * [为什么小时候疯玩一天都不会累，长大后跑两步就累个半死？](http://chuansong.me/n/2364032851027)
+
 * [成绩差怎么办？智商不够怎么补？靠好奇心](http://chuansong.me/n/2346836651019)
+
 * [让人笑到不能自已的疯狂发明](http://chuansong.me/n/2346836951021)
+
 * [为什么超人、白娘子和奥特曼飞的时候习惯一个手臂朝前，这有什么说法吗？](http://chuansong.me/n/2335396751043)
+
 * [刀锯活人等9个经典魔术到底是怎么做的？魔术师不会告诉你这才是真相](http://chuansong.me/n/2335396851032)
+
 * [头胎孩子更聪明，那干嘛还生二胎？](http://chuansong.me/n/2335397651616)
+
 * [为什么自拍的时候许多人喜欢拍左脸？是因为左脸更好看吗？](http://chuansong.me/n/2320533751027)
+
 * [为什么会画思维导图很重要？](http://chuansong.me/n/2309682551013)
+
 * [为什么喝醉的人感觉天旋地转，眼睛还会往下瞟？](http://chuansong.me/n/2306611851022)
+
 * [为什么有人分不清蓝色和绿色？不奇怪，古人连蓝色是什么都不知道](http://chuansong.me/n/2291515451040)
+
 * [生儿子让母亲更短命，对弟弟妹妹也更不好？](http://chuansong.me/n/2288121251020)
+
 * [孩子完美主义是好事？历时27年对4万人的研究说，别逗了！](http://chuansong.me/n/2284206051028)
+
 * [爸爸你以为你躲起来吸烟对我就没影响了么，三手烟照样致癌](http://chuansong.me/n/2272023251027)
+
 * [包子为什么会有一层皮？](http://chuansong.me/n/2274390851011)
+
 * [为什么千万别喝外卖塑料杯里的带皮橙汁或柠檬汁？](http://chuansong.me/n/2269256751031)
+
 * [为什么人生下来以后的一段时间里只哭不笑？可能因为“失忆”了](http://chuansong.me/n/2269256851029)
+
 * [为什么婴儿的哭声让人如此崩溃？](http://chuansong.me/n/2269256951024)
+
 * [4分钟搞懂：为什么小孩子看到喜欢的东西后会哭闹耍赖？](http://chuansong.me/n/2256120351033)
+
 * [理工科学霸的子女更易患自闭症](http://chuansong.me/n/2252009951014)
+
 * [为什么猪肉有股“沁人心脾”的臭味？](http://chuansong.me/n/2252010051017)
+
 * [人类脸变小了才有了发达的大脑？](http://chuansong.me/n/2252010151015)
+
 * [孩子手机玩多了字写得差，这会影响他的脑子和学习吗？](http://chuansong.me/n/2246311551025)
+
 * [饭吃多了人会变胖，盐吃多了肉会不会变咸？原来真的会！](http://chuansong.me/n/2243628951035)
+
 * [为什么人有时候会被吓傻，大脑一片空白身体也动不了？](http://chuansong.me/n/2243629051025)
+
 * [一个班里的学霸、学渣、听话的、不听话的，猜猜40年后谁最有钱？](http://chuansong.me/n/2233436051031)
+
 * [把回收标志从中间对半剪开，居然发现了生物遗传的惊天大秘密？](http://chuansong.me/n/2228444551037)
+
 * [想看看光速飞行时世界的样子？MIT做了一个这样的游戏](http://chuansong.me/n/2233436251033)
+
 * [女人生完孩子细胞老11年？](http://chuansong.me/n/2219477151013)
+
 * [2017年14个最奇葩的研究，看看科学家们又双叒叕搞什么事情](http://chuansong.me/n/2209709751630)
+
 * [为什么学霸不在乎智商，反而是学渣把智商看得很重？](https://mp.weixin.qq.com/s?src=11&timestamp=1547424673&ver=1317&signature=aW1QtHxD1Akpb1dFsW8uCvz*vO4SNrc8CkpYA0AXnw4SKwujQwbNvzbZFwtD-8l9cP24gTL0P46mJJfu81G9OTqMxKwffJb9LLb1RYIFzVsv96dujFz7Fdm5lGbnDEGG&new=1)
+
 * [珍惜冬天，10 年前科学家才明白这是最容易减肥的季节](https://mp.weixin.qq.com/s?__biz=MzA3MzE3NTg1OA==&mid=2247520351&idx=1&sn=c4d01816bfd210ecf3389064909aaed8&chksm=9f11d602a8665f14b67a990c95ff2b96b5a395f938e2ad5f64f8499145d67c5d744981c724ef&mpshare=1&scene=1&srcid=&sharer_sharetime=1579128138621&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [Nature子刊：大学成绩高 爹妈基因好](http://www.886bl.com/bl/9307/800493.html)
+
 * [多动症和抑郁症存在的意义，或许是为了人类的延续](http://justrun.thisistap.com/2018/11/07/%E5%A4%9A%E5%8A%A8%E7%97%87%E5%92%8C%E6%8A%91%E9%83%81%E7%97%87%E5%AD%98%E5%9C%A8%E7%9A%84%E6%84%8F%E4%B9%89%EF%BC%8C%E6%88%96%E8%AE%B8%E6%98%AF%E4%B8%BA%E4%BA%86%E4%BA%BA%E7%B1%BB%E7%9A%84%E5%BB%B6/)：“蒲公英-兰花”理论
+
 * [为什么男孩子尿尿只要21秒，40岁以上的叔叔却要花更长时间？](https://mp.weixin.qq.com/s?src=11&timestamp=1541644657&ver=1231&signature=9bv9h8dlCwcD3PvPAKK6ZDTqBts86W7iRdb46VBJZm3ZNh8VzGMx0Wu13p9ZxZGuXhkbbKMmZmheYtsOCf1WuzPdzhV0ox0gWWYMammB-P7AqlBtsHHG0*MJE6rZdj93&new=1)：搞笑诺贝尔合集，搞笑科研经费
+
 * [为什么洗澡水砸不死蚊子？](https://mp.weixin.qq.com/s?src=11&timestamp=1541635309&ver=1231&signature=9bv9h8dlCwcD3PvPAKK6ZDTqBts86W7iRdb46VBJZm1XFZNGrmOclfb4jBF6IvB*cYj1JTK1faS9yaky1jlcmAbWcj8UkBGn5LAXuT8bF6IyW2IsO6ZptVjUZdAr7m*1&new=1)
+
 * [童年回忆里的这种圆滚滚的虫虫，居然有鲜为人知的强迫症](https://mp.weixin.qq.com/s?src=11&timestamp=1542327727&ver=1247&signature=aKLKMSWLWyYwATy8hUlQuqGdoUx9uAcMdTsPF9fw0vMuZsp5Dlg9O02TmrVRQBsoSUBvNoSHq7iuuqupnqW7t0OON747p4TxnN3UGphX2XeSXAAvDGaI8wEF*qOx6z42&new=1)：动物在迷宫中的这种左转右转不断交替的行为，叫做迷宫自发交替行为（spontaneous alternation behavior）。
+
 * [一辈子这么短，他们为什么要用几个世纪来做实验？](https://mp.weixin.qq.com/s?src=11&timestamp=1542849956&ver=1259&signature=XuYRjQjFdRQ-*UUWJEy2n4mH1u4I1hj4tkG9Q-FzXtLG-ZoufX2nf3bJOiQ*2Qs3GRKYr3q1eY44HbzunrAJOR2WcgYvPWYdi0Ypn-cYM9wktdH*nFXZ4qeYu2ZDTwUZ&new=1):沥青低落实验
+
 * [这个风靡30年的儿童未来预测，不过证明了富裕家庭的孩子更能忍](https://wxn.qq.com/cmsid/20190103A062BB00):棉花糖测试
+
 * [6岁前的儿童怎么看世界的？科学家说比较像老鼠](https://mp.weixin.qq.com/s?src=11&timestamp=1546397041&ver=1317&signature=aW1QtHxD1Akpb1dFsW8uCvz*vO4SNrc8CkpYA0AXnw76alZN09IctFfoo7rwpC0ap2wIniFxEWWUANHfRFGZxbQo*POMZAeYvGf4YK0kGegz4dEJrd7TyTsl4cwSwrqB&new=1)
+
 * [把人类宝宝和黑猩猩幼崽一起养大，会发生什么有趣的事情呢？结局可能是有些出乎意料的](https://mp.weixin.qq.com/s?__biz=MzI5MTcwNjA4NQ==&mid=2247485529&idx=1&sn=2f78b5af2e8e0f4c3a869f63a2f4cc22&scene=21#wechat_redirect)
+
 * [这个实验，让人类等了一百年](https://new.qq.com/omn/20181221/20181221A01628.html):沥青低落实验
+
 * [从前有个学生熬夜迟到了，错把困扰数学家的难题当作业做了出来](https://user.guancha.cn/main/content?id=94396)：突破思维定式
+
 * [历史上那些"作死"的科学家：都是“疯子”！](https://mp.weixin.qq.com/s?src=11&timestamp=1561938877&ver=1701&signature=c59Jvi9YUxjEvmtk5CMn6Umfy7lI2S8y5DVP1joj*z0qRoREDSggwWzxvlIUxcylvqfMG6Y1772QdicsKHmLyR0C1CNgUlPwa7w8xLSHwQWe5UoOD*tfJFmEYqec-V0M&new=1)
+
 * [心理学的 166 个效应大全（一）](https://www.douban.com/group/topic/4940262/)
+
 * [心理学的 166 个效应大全（二）](https://www.douban.com/group/topic/4940330/)
+
 * [心理学的 166 个效应大全（三）](https://www.douban.com/group/topic/4940396/)
+
 * [论如何科学地倒牛奶](https://mp.weixin.qq.com/s?__biz=MzA3MzE3NTg1OA==&mid=2247520725&idx=1&sn=1e227863591f512f03fc0c5517a4d059&chksm=9f11d788a8665e9e82e5a03df1cdd3a9389f7966828a2a053e3e198b9ffd0a0f1ac0bf2c4cb8&mpshare=1&scene=1&srcid=&sharer_sharetime=1580948928180&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [因为 2 万人自愿被感染，首个人类冠状病毒才被发现](https://mp.weixin.qq.com/s?__biz=MzA3MzE3NTg1OA==&mid=2247520597&idx=1&sn=9844443a6e1dd5a786a24c56e9f4a89e&chksm=9f11d708a8665e1ed39c526ba0f5acfc16fda301b4ee51f6693c570d07e762b996efe87f4b19&mpshare=1&scene=1&srcid=&sharer_sharetime=1580343591889&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [神奇十小时法则 | 如何科学地避免 “每逢佳节胖三斤”？](https://mp.weixin.qq.com/s/ccvNa5qQmQlO6TQ4c0ydDw)
+
 * [为了欺骗，它们学会了变声、“虚假高潮” | 动物界的骗子高手](https://mp.weixin.qq.com/s?__biz=MjM5NDA1Njg2MA==&mid=2651999840&idx=1&sn=3a59513f05db775bf38d9093ddd1cb40&chksm=bd6b71938a1cf88549775de8bbf486078f7580eb408b89cb543f26f1159d316d6bb26cafc0af&mpshare=1&scene=1&srcid=&sharer_sharetime=1581168350035&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [用大便做了一把菜刀](https://mp.weixin.qq.com/s?__biz=MzA3MzE3NTg1OA==&mid=2247520747&idx=1&sn=7666c7670f25d13aa6fb6c750dbeaf8c&chksm=9f11d7b6a8665ea0e5ef9ee46c06ba64961241fec987ba6d05b7a2110c06495db103527b97fa&mpshare=1&scene=1&srcid=&sharer_sharetime=1581208884742&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [鸟屎 + 石墨烯 = SCI 论文，华人学者用实验数据硬核讽刺，学术期刊灌水何时休](https://mp.weixin.qq.com/s?__biz=MzA3MTM3NTA5Ng==&mid=2651063421&idx=4&sn=59f4b0b120864c1509c5af3f9b8d1e35&chksm=84de25eab3a9acfcc2a6ba3809443c43d4bf7a5d822cce327eb3f39b632a36d9db9448f213ea&mpshare=1&scene=1&srcid=&sharer_sharetime=1581315374852&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [那里有妹纸，那里就有猫](https://mp.weixin.qq.com/s?__biz=MzI5NjUyNzkxMg==&mid=2247488751&idx=2&sn=8c982da0cada31b0c8f270c80a8b3304&chksm=ec43a5a8db342cbe1632164f0bb35a5483581b1d00da4632c7317af0da2a51af6115a6435041&mpshare=1&scene=1&srcid=&sharer_sharetime=1581639807930&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [一片面包，带你理解洗手的重要性](https://mp.weixin.qq.com/s?__biz=MzUyNjQxNjYyMg==&mid=2247487538&idx=1&sn=a519aae77a9ff7a259f36643a83a7a70&chksm=fa0e7fb3cd79f6a588f8305930e32e54563c1e0a458d93923e7fd6bbbd051eb8c3a83685786b&mpshare=1&scene=1&srcid=&sharer_sharetime=1581813456738&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [重复打击孩子会有什么后果？家长都该看看这个魔鬼实验](https://mp.weixin.qq.com/s?__biz=MzA3MzE3NTg1OA==&mid=2247521122&idx=1&sn=c78bcd053bde3fc060af319b8526a2e1&chksm=9f11d53fa8665c296724aca6256e3dfeae1f0eb0474453425fc28e781aa6c44a677f69c7f54d&mpshare=1&scene=1&srcid=&sharer_sharetime=1581901757059&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [实锤了，猫主子的察言观色能力不比狗子差，它只是不想理你](https://mp.weixin.qq.com/s?__biz=MzA3MzE3NTg1OA==&mid=2247521227&idx=1&sn=4bfae7ae7076c09a2bf7a6c18a2a36e1&chksm=9f11d596a8665c80098bf9511f84fac57b9735247b89a65b32cbfc6daab6675eaf3e4ee66ecc&mpshare=1&scene=1&srcid=&sharer_sharetime=1582161062896&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [童年迷思 | 为什么用洗洁精配成的泡泡水吹不出很多泡泡？](https://mp.weixin.qq.com/s?__biz=MzA3MzE3NTg1OA==&mid=2247521531&idx=1&sn=0c717a52d5bd04aefcfa868e66ff0da7&chksm=9f11d2a6a8665bb085ccb8a39a149695725073b48e0ef9efb0b8bbea41abdbc6e95d2c54e95b&mpshare=1&scene=1&srcid=&sharer_sharetime=1582848145364&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [再不好好听网课，你可能要被鹦鹉超过了](https://mp.weixin.qq.com/s?__biz=MzI3MzE3OTI0Mw==&mid=2247498252&idx=1&sn=8652c055f289329617d51afdea531a6c&chksm=eb258d08dc52041e7289a70b197516b1c961be326f360f42feab84129fb06e96da5a9ef96fd0&mpshare=1&scene=1&srcid=&sharer_sharetime=1583450996868&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [被贞子吓哭时，你的大脑里发生了什么？](https://mp.weixin.qq.com/s?__biz=MzA3MzE3NTg1OA==&mid=2247521942&idx=1&sn=94457d6579ac9ef985b9043a512577b4&chksm=9f11d0cba86659dd29e81c56a2b9ea438d6989b0c871fc9f4509784873c32ce8fb4b90c41091&mpshare=1&scene=1&srcid=&sharer_sharetime=1583713277852&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [在 AI 眼里东方人和西方人原来是画风这么不同的两类表情包](https://mp.weixin.qq.com/s?__biz=MzA3MzE3NTg1OA==&mid=2247521950&idx=1&sn=b141a834925a56580dd7db09a99e270c&chksm=9f11d0c3a86659d5841880a46a3437e2a9ba7e1d568e11ccc217c6b0d44a80474ec45f7ae920&mpshare=1&scene=1&srcid=&sharer_sharetime=1583798565477&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [蒸包子到底是上层先熟还是下层先熟？](https://mp.weixin.qq.com/s?__biz=MzA3MzE3NTg1OA==&mid=2247521977&idx=1&sn=07f2318b0cf8250f8dff40c49dc3c7f7&chksm=9f11d0e4a86659f20a5e5bcc3a92c1fd0cb3ae1bbda8f0b0e6a5b416836b57591505143ca4f1&mpshare=1&scene=1&srcid=&sharer_sharetime=1583886234045&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [明知道没有新消息，为何还是想看手机？](https://mp.weixin.qq.com/s?__biz=MzA5NDkzNjIwMg==&mid=2651690704&idx=2&sn=28f420cce369e5d6411b1ec25192c7bd&chksm=8bbe3b35bcc9b223ab8e2d9ba7fad467ccac1b24ec3d260bd32fcfa533f2a57fbf46f442732e&mpshare=1&scene=1&srcid=&sharer_sharetime=1583923226548&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [删帖、屏蔽关键词能阻止极端言论传播吗？Nature 研究：不能](https://mp.weixin.qq.com/s?__biz=MzA5NDkzNjIwMg==&mid=2651690704&idx=1&sn=4383485dd9524871ce2493718de0fbf4&chksm=8bbe3b35bcc9b2234a338bce05181b68154f07a0215b78593456a99c2de056b23f68c5e9dce7&mpshare=1&scene=1&srcid=&sharer_sharetime=1583923237082&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [飞机为什么能飞起来？直到今天，科学家仍然没有答案](https://mp.weixin.qq.com/s?__biz=MzA3MzE3NTg1OA==&mid=2247522065&idx=1&sn=169c8e8062ece0e886c50de0954fbe10&chksm=9f11d14ca866585a8b11a8b3066f739a3e6c2da03e1858bf24bbc1a41fc932f4fe692ce80b3d&mpshare=1&scene=1&srcid=&sharer_sharetime=1584055428671&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [知人知面不知心：为什么面部表情不能真实反映情绪？](https://mp.weixin.qq.com/s?__biz=MjM5MTQzNzU2NA==&mid=2651677846&idx=2&sn=220b5a5ed5ac30097baba24545a6052e&chksm=bd4c43058a3bca133d652b17537065d52ac3760ce16a202cbc1b840fcd6db0645abbafe85191&mpshare=1&scene=1&srcid=&sharer_sharetime=1584087402863&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [女性激动的泪水会让男性 “性趣” 大减](https://www.linkresearcher.com/theses/29527459-1a72-4c86-8a94-2202548e76e1)
+
 * [既然生物有共同的祖先，为什么唯独人类有高级智能？](https://mp.weixin.qq.com/s?__biz=MzI3MzE3OTI0Mw==&mid=2247498370&idx=1&sn=8885f489c1c9051641ec8e757a8aa575&chksm=eb258d86dc52049029e2f0bcc9a8553a50e4a5ef4f67a975816abf893c082f6569b18aacac70&mpshare=1&scene=1&srcid=&sharer_sharetime=1584227640361&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [隔离 30 天后，它们的脑细胞缩小了两成](https://mp.weixin.qq.com/s?__biz=MzA3MzE3NTg1OA==&mid=2247522204&idx=1&sn=5d03102506643f34fb478619bb2ee8e4&chksm=9f11d1c1a86658d7776ce82d52fd04dc17c1e1351bd310acf9ac6e17333e7ec990215c7b4ec1&mpshare=1&scene=1&srcid=&sharer_sharetime=1584228594688&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [人类费劲才能学会的游泳，为什么蝙蝠、兔子天生就会？](https://mp.weixin.qq.com/s?__biz=MzA3MzE3NTg1OA==&mid=2247522224&idx=1&sn=7efa5f681768792640d8cb8b7c134d0d&chksm=9f11d1eda86658fb08f0c0484b3b24eb4dfb07af004445a667acd993ae62962e927f9b06fbff&mpshare=1&scene=1&srcid=&sharer_sharetime=1584405005056&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [100 多年来，气温越来越高，人类却越来越凉了……](https://mp.weixin.qq.com/s?src=11&timestamp=1584583137&ver=2225&signature=8*mPm2OSRxJlP3o4APykYds5-zEwtaXX6GVnzKnF5z73MFrDsl-ePLYnxIpZEnDPPd4-6ZZ5Hg*wDtnreyRK-oNUIPG0o5g*O5YyPh7OEf-JwjMcgiiYS4e1Iwy4FAT*&new=1)
+
 * [人体温度降低 难道还是微生物的锅？](https://mp.weixin.qq.com/s?__biz=MzI3MzE3OTI0Mw==&mid=2247498402&idx=1&sn=0a2002bd828a9881b23f2a84e3cee1dc&chksm=eb258da6dc5204b09e2e1f56e1d81e5e7b951f24fdfca819dec7978bc0e1f986bee0595d745e&mpshare=1&scene=1&srcid=&sharer_sharetime=1584487178036&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [倒出的水为什么总容易沿杯子外壁漏出去？](https://mp.weixin.qq.com/s?__biz=MzA3MzE3NTg1OA==&mid=2247522246&idx=1&sn=db52792898b5a6d246eda8dc18c32be8&chksm=9f11d19ba866588dc9d9a1d9a579c431aebd7e1dcd8f990034fd682e76e99a3fa40fab0971b1&mpshare=1&scene=1&srcid=&sharer_sharetime=1584487814652&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [15 年前那场轰动电竞世界的瘟疫，惊动了美国 CDC，还发了顶级期刊](https://mp.weixin.qq.com/s?__biz=MzA3MzE3NTg1OA==&mid=2247522358&idx=1&sn=629ca35372f696cc0382593bb362b7ec&chksm=9f11de6ba866577d2d780ad8cd760bd7fc56ca1105149dc374167b2ffd83d9fc2b8266eebbb4&mpshare=1&scene=1&srcid=&sharer_sharetime=1584659175271&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [每个人都活在过去：你 “看见” 的东西，可能只是大脑预测出来的](https://mp.weixin.qq.com/s?__biz=MzA3MzE3NTg1OA==&mid=2247522501&idx=1&sn=501ad75dca55a387bbbde837b3cf8a70&chksm=9f11de98a866578ef77457777b8ae2cef83e3eae0d3f39c79643a70dc03506344978f258c046&mpshare=1&scene=1&srcid=&sharer_sharetime=1585265504590&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [拆家的狗子先别扔，也许它还是台行走的 “热量探测仪”](https://mp.weixin.qq.com/s?__biz=MzI3MzE3OTI0Mw==&mid=2247498646&idx=2&sn=2fc844de4aa08e5b99435f67e632a609&chksm=eb258c92dc520584b022a0c5e9e7f2d78e981209fe75534416380cddfbf3400855cffba21dbe&mpshare=1&scene=1&srcid=&sharer_sharetime=1586216103656&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=2254661a1f05404b0aa8c95b28c563ff4b7a6af2682a092007b6eddd04e973206b9b326059715ad1858fee35c08892183ca448c32a04801f8f561a2b97e547f6bfa44e756daf195a834eb407b364bcfd&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+XP&version=62060841&lang=zh_CN&exportkey=Adl86VdYIGTVCuFTudexwYY%3D&pass_ticket=Dq%2Fn%2F2sOhPkAzoapmD8lMSoDYSdQcnfqBIAqsaWajKcnEEsRJ4vPRL5T9JBdoqbY)
+
 * [独自吃饭，让你吃得多了还是少了？科学家最近做了一个实验……](https://mp.weixin.qq.com/s?__biz=MzI3MzE3OTI0Mw==&mid=2247498900&idx=2&sn=30e336323207a9f9b23aa337492abe00&chksm=eb258b90dc5202864553e0ee5109ed5c42384931cdd8991cca2208a4e5a63a4cb2cb5f82b3e0&mpshare=1&scene=1&srcid=&sharer_sharetime=1587165450420&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=24c4f19be8bd77842603a7130b4e845073cac9482aafee6c209e248dbce7ab17d9e9b1f133def15ad97c978b0c8bd31462d0d4559b57337ed35ff0052941ff5e1bcdf765b1e9d60ff919d21f67afaddb&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+XP&version=62060841&lang=zh_CN&exportkey=AUsCe7aK%2FC9IEukyeChxFqs%3D&pass_ticket=egSQZf3ZmjmNSBYxFfxeMhxks6Fcdfesee2EK45qb6wqbW1FRDSL1ND6vhbrpF2H)
+
 * [BMJ 二十年最火论文：性行为时生殖器会变成什么样子？](https://mp.weixin.qq.com/s?__biz=MzU3MTE3MjUyOA==&mid=2247508486&idx=2&sn=02cc71c6a06fadbdfc49a0165bb5a3c2&chksm=fce6d1d9cb9158cf1b86bb23b527b76d9ef5e7dab72287a7a65cb37b3eacefdb34ec02fd7ccd&mpshare=1&scene=1&srcid=&sharer_sharetime=1587871552769&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=7024fc3958d21a49a9f9fb1a5dd52585ed667825b578377a135899d26f6bdb859f7225791a7eb152e6f2b62ba3a04717cfcf89a374dd6a4b866f915352eaf55d7e769b327d4cb4100f44d8845eb1574c&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+XP&version=62060841&lang=zh_CN&exportkey=AW2JIQA94%2Fs7OGItS0zXpJ0%3D&pass_ticket=WyEgrrj25frkMfokbtoyksRrtPeGU2ppgS%2BRPcT0QHb9WRxdetYa%2BHEHtR4gvfG5)
+
 * [不易长胖的天赋真的存在：怀孕时的运动，让后代更容易保持身材](https://mp.weixin.qq.com/s?__biz=MzA3MzE3NTg1OA==&mid=2247523499&idx=1&sn=56f0f8f5e0f0b525e7529be713c9eead&chksm=9f11daf6a86653e05d4abed58b38d57dfc30896a74d9f3ddbaa427af19252883d24f4cf77e1a&mpshare=1&scene=1&srcid=&sharer_sharetime=1587939674518&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=429edb9feed8a5eb6bc7c864c7a31fe9e8dfd9eba0db25fcce0205cadc9761e5d1297a1678eebcf92295a29b3ef12a777808aab3ad359ca08e3e57c8aba720992695f23b04eccf78439680fda1bee7f9&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+XP&version=62060841&lang=zh_CN&exportkey=AR1V3wPjhVnBriFP8LRivRk%3D&pass_ticket=SPRInvQoG9TfGg7xTIPLJVNWMjIdIlS6A3%2B1G7gfS63gfWGw8z37X4lKCuDpO2F8)
+
 * [都别硬撑…… 不论男女，压力太大都会 “传” 给后代](https://mp.weixin.qq.com/s?__biz=MzI5MDQzNjY2OA==&mid=2247498597&idx=1&sn=c3b5c315e2b790b9dabc156da815531d&chksm=ec1d5836db6ad1205c60c4719897b26ab1f0a2519cc092d54b7f36754d67b84e455e146c2721&mpshare=1&scene=1&srcid=&sharer_sharetime=1588118419608&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=a2f7f35b173cc2d3f159a2a8e1d688cc277a6610d8a097b2bda05367517415cca5749c0b904ffc628479a5e63cb96f16a2dc21d74942d3e5e715c072d79a61ec88414802abb4cecacb89b971c8642b43&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+XP&version=62060841&lang=zh_CN&exportkey=AdzhVcmA9SROndHdHE5r59g%3D&pass_ticket=C5i9iOtoY4JEMBJe0zor4wcjPhEzyHFU3YPKNM2uXztN1hJ6CqQBcTiVS3Xv46h2)
+
 * [混知健康 -- 小伙把导尿管插进自己心脏，插出个诺贝尔奖！](https://mp.weixin.qq.com/s?__biz=MjM5Mjg3MTIzMQ==&mid=2658948853&idx=1&sn=4411c30789f11ce3a7f324094b1e2d4e&chksm=bd1750a58a60d9b3785440802c9087e5058456614f21dac3908cbb8199b45e9104e5dbe93445&mpshare=1&scene=1&srcid=&sharer_sharetime=1588225640631&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=a2f7f35b173cc2d3a883406dc814ffacb9cc50594036b476bf8f32177ab23572947c159426484dcee65371d617f8f66ac770f6bccfa381ac4587671014da011383c681ea9ea77611788c00ba069c9fa5&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+XP&version=62060841&lang=zh_CN&exportkey=AdxSrCsJ6ESYpAkxY2JC%2FdY%3D&pass_ticket=C5i9iOtoY4JEMBJe0zor4wcjPhEzyHFU3YPKNM2uXztN1hJ6CqQBcTiVS3Xv46h2)
+
 * [为什么每次出现新的传染病时，阴谋论就会盛行？](https://mp.weixin.qq.com/s?__biz=MzA4NDQ1OTY5Nw==&mid=2649732468&idx=1&sn=d3f6c86f0969d25dc610c33943027ec0&chksm=87fdfcaab08a75bcd797aff78ee9477f5b328feff83d972b986c0cef31dfd5450da929b24f38&mpshare=1&scene=1&srcid=&sharer_sharetime=1588292499075&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=7024fc3958d21a49a5a8d67525ef341625e29cd9a8e18b0ae27bebf51fffe8bc200ee69503733a154b2e868b5284e8f4f287fb3e96078091b7824d4fe66bd4f491e100f5ece1b6959d5b26df47c77b94&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+XP&version=62060841&lang=zh_CN&exportkey=AerYfyXbaNIacJ5jnKI7jHI%3D&pass_ticket=C5i9iOtoY4JEMBJe0zor4wcjPhEzyHFU3YPKNM2uXztN1hJ6CqQBcTiVS3Xv46h2)
+
 * [蚂蚁：因为认路能力过于优秀，科学家给我回家路上挖了坑](https://mp.weixin.qq.com/s?__biz=MzAwNTA5NTYxOA==&mid=2650879713&idx=2&sn=cb3ed52b6f7151a17aed6de479e8cf75&chksm=80d47f4cb7a3f65aab31454c15d336f937609118bcb7b0b3716d3cc2ca12a471b0b0c72715f6&mpshare=1&scene=1&srcid=&sharer_sharetime=1588308397221&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=429edb9feed8a5ebf054b1e021838cd6d844c22fea718564b7878118f96c074050a0eb685b19798253099dd9a0202f3dca9b47419126221d5ae7460efb2703c449dd67a5a23faa586f12167ca09b5b8c&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+XP&version=62060841&lang=zh_CN&exportkey=AWUwKZGcPBUJfy5B%2B%2BKFs28%3D&pass_ticket=C5i9iOtoY4JEMBJe0zor4wcjPhEzyHFU3YPKNM2uXztN1hJ6CqQBcTiVS3Xv46h2)
+
 * [我怎么就管不住这手啊！总是忍不住摸脸，原来是为了闻出自己的味道？](https://mp.weixin.qq.com/s?__biz=MzA3MzE3NTg1OA==&mid=2247523681&idx=1&sn=295464e199aeb3b751049ae5639910dd&chksm=9f11db3ca866522a8263dc901f599e57c36403d744494ffba17d6a6a5390d6c23790d99600cb&mpshare=1&scene=1&srcid=&sharer_sharetime=1588551038250&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=d51a4283ff2ecb018c0bfbe656582993d44fb4df342e4117793272ebc96ffae75e98db47da22b7506e2e4397ed65fe3184eb4364024e1d66970d0f71585bb44d3a52b25b065c93cf4604b1de75e5986e&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+XP&version=62060841&lang=zh_CN&exportkey=AWybre7dHgmgJz2cx3eOUIY%3D&pass_ticket=R9x4RUV9mg0JZUSvEqKl9BTh2srunriJ95xf%2Fxcg6%2FHg6xw3Io7RRjwBtyCrSHY4)
+
 * [这些口红颜色的秘密，可能连李佳琦也不知道](https://mp.weixin.qq.com/s?__biz=MzI3MzE3OTI0Mw==&mid=2247499077&idx=1&sn=e6e8e243427352957afec2a039a27be9&chksm=eb258a41dc520357c3ccec877020bc9cc64d736c3fd0c321c43089e3a4e200e1372405d1ba69&mpshare=1&scene=1&srcid=&sharer_sharetime=1588461775485&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=429edb9feed8a5eb78cfb766b0fe891baf20a13cb54aad4960229801ebc261ca4b781b7164a0234e37354a07ab8b52d38b581de8a12bbf29f38e759265043bbbe066224d101063f6672a3e081c069de5&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+XP&version=62060841&lang=zh_CN&exportkey=AeYTPJ77Nkb7xglWeqJcFUM%3D&pass_ticket=R9x4RUV9mg0JZUSvEqKl9BTh2srunriJ95xf%2Fxcg6%2FHg6xw3Io7RRjwBtyCrSHY4)
+
 * [5 岁孩子不会减法？“哎呦妈妈你可不要对我生气！”](https://mp.weixin.qq.com/s?__biz=MzI3MzE3OTI0Mw==&mid=2247499165&idx=1&sn=a799c6aaaa6b23b9cb5961172f0f00d4&chksm=eb258a99dc52038f933b0ffe103b40c2eb04d23b3edc385d47007bd92b09d3af325bd7af73e7&mpshare=1&scene=1&srcid=&sharer_sharetime=1589067031942&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=ebc26e2247e541195e244e6ab902196a628306c6d4d864ef1dcb7d0b71ce52be9585fc57b573a573dfef480f813a968752e5e5e1fc62c5017e761a40b3d05069ab8d6e0882a3090e7e2035178ae15fc2&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+XP&version=62060841&lang=zh_CN&exportkey=AbMls90hZka43BBiJG0hggc%3D&pass_ticket=aypapQF0xtj4XyIfVmHnUiRPYHdANFzfYvZKqpch74vlTeLyfhbaNwgxZAYRiES0)
+
 * [看完史上唯一的饥荒实验，才知道长期节食减肥有多伤脑](https://mp.weixin.qq.com/s?__biz=MzA3MzE3NTg1OA==&mid=2247523944&idx=1&sn=56a5f75b913554a4b0f3c5767034a9ae&chksm=9f11d835a866512374e1e37a683c64b579645772663bc9503bc53358afab32a2b49fd663c0ac&mpshare=1&scene=1&srcid=&sharer_sharetime=1589067833495&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=ebc26e2247e5411959f4576ce7e8555f013d7592adb34696fdde4d6114d96b95b9b1ad9409f7ef8f583c359217b348233fece549359bb9c67139981dccf40cf91461d45dcfa5812b01dc123a9fc1770e&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+XP&version=62060841&lang=zh_CN&exportkey=AbYh0pfihwKcHypLM6WyiU0%3D&pass_ticket=aypapQF0xtj4XyIfVmHnUiRPYHdANFzfYvZKqpch74vlTeLyfhbaNwgxZAYRiES0)
+
 * [动画史上后果最严重的意外：皮卡丘的一次电击，让 600 多名观众进了医院、上万人出现症状？](https://mp.weixin.qq.com/s?__biz=MjM5NDA1Njg2MA==&mid=2652001674&idx=1&sn=e3b706c173a89c4caca0259fb4570896&chksm=bd6b6a798a1ce36fd1c429140a5e9bd6ab17a18f16b313944f1bfe5e35c4c948063853a88390&mpshare=1&scene=1&srcid=&sharer_sharetime=1589163157084&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=6c34e32fef3e4bd88456ee620d8f9bee931dcba128133057affcd63d2ecbcb68a1f9dfb2d457c299b8ece95521701cdfab1f0f2c5244a1b3b0ee984897e861d9c424106c6870eda6bd606ec1008e4dc1&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+XP&version=62060841&lang=zh_CN&exportkey=AVjiRE4vkplHCY2%2BM2z2UvI%3D&pass_ticket=aypapQF0xtj4XyIfVmHnUiRPYHdANFzfYvZKqpch74vlTeLyfhbaNwgxZAYRiES0)
+
 * [科学 60 秒：想提高创造力？动动眼睛就能行 ](https://www.linkresearcher.com/careers/e697e010-9549-433b-b4f5-92102b97e208)
+
 * [科学 60 秒：想要在无形中吃得更少？只需要做到这两点](https://www.linkresearcher.com/careers/d39db85d-1e56-451a-a8b3-a8176e287c8a)
+
 * [物理学家让颜料自动破解迷宫，一直用脑解谜的我想不通](https://mp.weixin.qq.com/s?__biz=MzA3MzE3NTg1OA==&mid=2247524380&idx=1&sn=3339d71262b14c4a4542f9495c88055e&chksm=9f112641a866af5737b89a03f2e4610f031a249a6c760ab7285daf8e93d88116e726b62f81fb&mpshare=1&scene=1&srcid=&sharer_sharetime=1589671629876&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=f9163b245bbe567e2051bc711ef3377c4b18400fb17867a1730c91cdc5e40651b372467e049dce3a421671ea8a15f4081f5b45b7bcb0a442f2101cc9bf3a6f106790762d45fa4815940bd681531f3ea2&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+XP&version=62060841&lang=zh_CN&exportkey=AZhMIonwviRZcEJoWLtYtpU%3D&pass_ticket=vOECMYWhotAEf2xhX9drgza3UesQFyajKjGuP8fCcIm2TFG7Ticcts0ONqU%2FJXva)
+
 * [中国学者发表研究成果，驳斥 50 年前 Nature 发的文章：同居或密友的女性不会出现同步月经周期](https://mp.weixin.qq.com/s?__biz=MzU3MTE3MjUyOA==&mid=2247509240&idx=1&sn=121eaa22a29e3e51a63ccc18efd6e434&chksm=fce6d727cb915e31ebb9ffe6082af2529da04bad021e1bb771abd4c72a55e0aef25fa07da63a&mpshare=1&scene=1&srcid=&sharer_sharetime=1589843756616&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=79d7d913589a49f06a7630432b1f93fdb9937afb64ada162b82ee7d8348e0cf8c5694fadca0e01cbdcda6930fa66732b2c255bb3291a9513f03bcac9d1933c5d904545760f4e5b1c74c9c5ad0ed137e5&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+XP&version=62060841&lang=zh_CN&exportkey=AWzZQoatE%2Bq1vK1WAAELst4%3D&pass_ticket=WeQ%2F9lMsk9TGefvhi5xsI1DxDC0Tuk826MThQy%2BRPMirkkwS6E8ZoGX%2BTcUnIroA)
+
 * [公鸡为什么会在早上打鸣？](https://mp.weixin.qq.com/s?__biz=MjM5MTA3MDY3Mg==&mid=2653728279&idx=1&sn=de85fb099cede84eea72f951bb3c2550&chksm=bd632ea88a14a7beddd2806774dad5634bf52990b9e0a95e0e038da0e527287272123dad7b49&mpshare=1&scene=1&srcid=&sharer_sharetime=1589944414477&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=ee7920faaaff2a8bd21044e515d4db965956af4bd09bf795b1ecc7bdadd23ee3d97e16a7d0391a8dab4995c5b40a66454f49b2d7e0433d2e73ddcdc1063d1ff04606f944ee41847e4c1a5202f8533e60&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+XP&version=62060841&lang=zh_CN&exportkey=AY3Ls9C%2BBcXRF2b%2B1PpJoJI%3D&pass_ticket=WeQ%2F9lMsk9TGefvhi5xsI1DxDC0Tuk826MThQy%2BRPMirkkwS6E8ZoGX%2BTcUnIroA)
+
 * [如何挖走 “高富帅” 的女朋友？中科院这项神研究，登上了 Science！](https://mp.weixin.qq.com/s?__biz=MzIwMzA1MzU5Mg==&mid=2652140453&idx=2&sn=03e24bf764e2461e9dcaa89e81a447ff&chksm=8d359cd2ba4215c4cfee09bbe72ed190a39004beaeb2ab52d5c7261affce4cdb9487b1c4fa5e&mpshare=1&scene=1&srcid=&sharer_sharetime=1590134815088&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=53aa3c6797a860f7d919f751ab7eff81fe26046dab746bca0fc4b4dc42599e2fd991e22bf15d5c48a5135e2c495c08af40339106d7aeaab9e801c1c68b9f77925b1de5aa09d82ec417b33b520b3b8d2a&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+XP&version=62060841&lang=zh_CN&exportkey=AdSfj2%2FyqciLZ%2BZaULgrfbU%3D&pass_ticket=UvVrdoRGUUD0gRJlE9fwcmp3HWg%2BCY651fV6f2uUFyXBAp%2FCfv2euFXjftsZklkP)
+
 * [哈佛研究：长期太忙会变傻](https://mp.weixin.qq.com/s?__biz=MzI5NDM3MjkyNw==&mid=2247494810&idx=4&sn=07a395902fd47c53c25b2357f041c598&chksm=ec617fcadb16f6dc0cfa8ed76f039fde4f7a5d2115a2e361a30be00590cf1a578495dee5454d&mpshare=1&scene=1&srcid=&sharer_sharetime=1590463490310&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=53aa3c6797a860f7dc72719e53a07bea14daec579b5b65503ca26ee28efe6f2166b7dac276298b8c753855fa48eb0abd1faad55a2c521f8c85ee5a9cd4d178f03b446b537da624c27cc627f33351f21b&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+XP&version=62060841&lang=zh_CN&exportkey=AclZLH6cMZvYRMMIyWAhU5s%3D&pass_ticket=MrbQwKIGXWBH1yRKcyB36e1OzAKBNspC4RKjw24OsFU1ecNpw9BEBee7AKH6Zs2U)
+
 * [重复打击孩子会有什么后果？家长都该看看这个魔鬼实验](https://mp.weixin.qq.com/s?__biz=MzA3MzE3NTg1OA==&mid=2247521122&idx=1&sn=c78bcd053bde3fc060af319b8526a2e1&chksm=9f11d53fa8665c296724aca6256e3dfeae1f0eb0474453425fc28e781aa6c44a677f69c7f54d&mpshare=1&scene=1&srcid=05312QsGEBKS93ydgto2VEQI&sharer_sharetime=1590880387055&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=9b54f54d784b36064051be97a4531a718f044a7365adc1d75ca132e0c015797f903f4827ae2176788b584384b2af3d05313e3474d622bc83994ccd0291a9658349a68f273cf3a0611b52bb7a3aaeb791&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+XP&version=62060841&lang=zh_CN&exportkey=Aej0eKvftkOHEHFgjSOvTeo%3D&pass_ticket=uMa9merJnfxxKApyXGHCG0M56ht9RCQ7IvL14Km1a4lQJ%2FJQNpcbrtCGbfCBqWCa)
+
 * [一百年前的这个经典实验，证明操控人的悲欢是如此简单](https://mp.weixin.qq.com/s?__biz=MzA3MzE3NTg1OA==&mid=2247525513&idx=1&sn=a916ebeca03a37c0565fae32c704c245&chksm=9f1122d4a866abc285851ff57328acaae1aa662cb6cfb624a28a3c2fdb4d535b99b1e1fe7b8b&mpshare=1&scene=1&srcid=&sharer_sharetime=1590880338230&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=8d751dd33417fe3fb5c2a333696eaad6cb4d087513d0b7c58cb56ac79d57451bc27d11375eb3ce2efd08e6e239d9fc3aa94d27b5a905e84ae9b3ac37fdb1ef7ade0f16b1ae7b3d42394be3c5547090e6&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+XP&version=62060841&lang=zh_CN&exportkey=AfHEVAPWy7bRe5SYmCFe9FE%3D&pass_ticket=uMa9merJnfxxKApyXGHCG0M56ht9RCQ7IvL14Km1a4lQJ%2FJQNpcbrtCGbfCBqWCa)
+
 * [师妹越多，团队集体智慧越高，当占比 80% 时，达到巅峰](https://mp.weixin.qq.com/s?__biz=MzI5MTcwNjA4NQ==&mid=2247493829&idx=1&sn=75402fa757f92521b4d94eecefbba446&chksm=ec0e2d4fdb79a4596493de417e60d89fa9c1e52bab2f292b09e23b87b6d64e3b10bebad4f75f&mpshare=1&scene=1&srcid=&sharer_sharetime=1590914372903&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=2d4ad61948a09f999f33c6dedc7b4cea526ad91958e8c44983994f59406f8f0c052544a9bc861dcb5c6b196b8195286d7be317bb983a7af8f836b94c61f7d067a97bfff6b4d3479979ed0a2b0d1827ea&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+XP&version=62060841&lang=zh_CN&exportkey=AThZNQ7gUW6cqxMUj8If3f4%3D&pass_ticket=M2lPLoCnRjjH%2BzuKT3VXp%2Bq533MEqorPwR4DNfnlE5uBMELVJo7%2Bcl6b%2BqhFUzY0)
+
 * [香蕉皮有多滑？为了告诉你答案，他 “踩” 了 60 次香蕉皮](https://mp.weixin.qq.com/s?__biz=MzI3MzE3OTI0Mw==&mid=2247500165&idx=1&sn=9e7636218ba973daedfe89f16f30418c&chksm=eb25b681dc523f976b9e7f75a51a240e4333fcf42f134076c3f84d3d53379758c3ce4c550945&mpshare=1&scene=1&srcid=&sharer_sharetime=1591053419950&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=8d751dd33417fe3feaa7341920c511776a0d1660c2cb21c7a6046e3edb2ee97e67fb3344b49181cb7bcad840e7b9074fc116f72879d50f5d8a54a459ebc756a76fec1f1220652821e9f2d1b375659efa&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+XP&version=62060841&lang=zh_CN&exportkey=AXlXWPVd3ZGnhxhCnGVxhz4%3D&pass_ticket=lgfK9%2BciJMGMu%2FLLmuupiZadhXYPkBkFU35LTA5aUCuy6n%2FqOu%2BUpyBYMQk6vYwk)
+
 * [他天天熬夜睡懒觉，数学成绩烂到挂科，却因一次迟到 KO 了世界级难题......](https://mp.weixin.qq.com/s?__biz=MjM5MDE3OTk2Ng==&mid=2657477714&idx=1&sn=467294916cc4dcf67bb2210ede1a3d9d&chksm=bdd9f3438aae7a5519519687621ec094f416b2637821f0cba170eb15704558a07d88c41f731a&mpshare=1&scene=1&srcid=&sharer_sharetime=1591226297149&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=d9e86545f3b3a92b669aff57c2849d7f3548ef18f067e27dac8c1c89d46e83c8bc2e16c4ff7c110815557918235e9c46bcc610e7dcbdea26f9a2513c0147d895fbc5d662618d27042935bb2ea448d195&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+XP&version=62060841&lang=zh_CN&exportkey=AaiN46%2FsJQ3v1pvKCwuC994%3D&pass_ticket=bMo5V%2FZidzl0v1XlJEhSsF1DsBLN8B8x7Btphwpw%2FpGNA9x76h3EPmue8PPJpix9)
+
 * [我国超 90% 大学生近视：视力下降的主要原因不是电子屏幕，而是宅](https://mp.weixin.qq.com/s?__biz=MjM5NDA1Njg2MA==&mid=2652003181&idx=1&sn=75ae1c4c3b0f933418a70343ef0b4f3f&chksm=bd6b649e8a1ced883c2911da34aa15efe706a287d3e13c090e5fc376264700657b75fe08da14&mpshare=1&scene=1&srcid=&sharer_sharetime=1591429038161&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&exportkey=AfyWMxC%2FrQN4uTKfNRajN14%3D&pass_ticket=N8E7CAWx4m6NpyYg%2FO2prhH2%2F7Yk%2BSmVxsmkV4Q5tDGHy%2BumQaSB7gJTVDPS1qh3#rd)
+
 * [那些拧不开瓶盖的女生全都是装的？理工男这样想......](https://mp.weixin.qq.com/s?__biz=MjM5MDE3OTk2Ng==&mid=2657480133&idx=4&sn=f5f8b9ad9176d1dd82c71a9c4662a4a4&chksm=bdd9fad48aae73c289733588e7398b6fef5e6a38f0f9e74c777a26b4dbce1549956f53c0708f&mpshare=1&scene=1&srcid=&sharer_sharetime=1591617907302&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&exportkey=AUtCmf4faG%2BnV3Aibw5MIcE%3D&pass_ticket=N8E7CAWx4m6NpyYg%2FO2prhH2%2F7Yk%2BSmVxsmkV4Q5tDGHy%2BumQaSB7gJTVDPS1qh3#rd)
+
 * [这款早餐让这个国家的 14 岁少年长高 10 厘米，被西方国家竞相效仿](https://mp.weixin.qq.com/s?__biz=MzA3MzE3NTg1OA==&mid=2247526029&idx=1&sn=1ffbdd768c0c0c2852799c8e3461bef2&chksm=9f1120d0a866a9c67ea7c4a18a013e5602d290c1415656389e4ebe62f9cd9293bb912f746c8b&mpshare=1&scene=1&srcid=&sharer_sharetime=1591616822848&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&exportkey=ARbXpNNbSBhqYgX%2FbnkWfMU%3D&pass_ticket=N8E7CAWx4m6NpyYg%2FO2prhH2%2F7Yk%2BSmVxsmkV4Q5tDGHy%2BumQaSB7gJTVDPS1qh3#rd)
+
 * [我儿子这么小，我膀胱容量应该是他的十倍，但为什么我俩排尿时间一样呢？](https://mp.weixin.qq.com/s?__biz=MjM5NjYyMjM0MA==&mid=2650898288&idx=1&sn=6e2e321e01dd56399f195112bee3dc01&chksm=bd13a61b8a642f0d737af4ae16eb8b6081c376f2b2f8942f3f6989b788aeee244f784b8b3670&mpshare=1&scene=1&srcid=&sharer_sharetime=1592098693017&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&exportkey=ARedPbCHasSBO1jlQPXr7AY%3D&pass_ticket=TFhqtKYl29p19%2BmQPo2sCRmaEQvp8i2O9Z6MxWsk2JJ1Cvh0lgS5ry2f4WDBb69W#rd)
+
 * [眼睛天生会 “欺骗” 我们？](https://mp.weixin.qq.com/s?__biz=MzA4NDU1MDY5OA==&mid=2653201144&idx=1&sn=6921bb2dd576cec3b7c668244c216505&chksm=843577bdb342feabc301eeebf4364769d5cc81a5479d6bdf7aea5c4b612ebe1901a15370c095&mpshare=1&scene=1&srcid=&sharer_sharetime=1592485096487&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&exportkey=AUoTOUh3ZuabzrUBO%2BAyTEU%3D&pass_ticket=JlQoTfNIdgUoKZmJ2PgRuJYFUTj8AsXxAJCN2zRn5V5ixqIqfZLs6mZG%2BPhszpSo#rd)
+
 * [科学 60 秒：除了换个小盘子，换换盘子颜色也能让我们吃的更少](https://www.linkresearcher.com/careers/7f094748-ca40-45a6-864d-a3da3f7b2f79)
+
 * [在 “山寨” 诺奖上扫地 20 年，终究扫来了货真价实的诺贝尔奖！不愧是曼哈顿计划最年轻的天才......](https://mp.weixin.qq.com/s?__biz=MjM5MDE3OTk2Ng==&mid=2657484591&idx=1&sn=1c9fca1de9b04c0d6c54a47c36855004&chksm=bdd9e83e8aae61283f6399632f6470d6a10402c2285d404e9043b74cbacf4c0cdf79f16e21e2&mpshare=1&scene=1&srcid=&sharer_sharetime=1593298091023&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&exportkey=AdNnd5HOuvnzPLLf0bcH5iA%3D&pass_ticket=BlY1Cg6vhlIagSWEs4ZI9Pt1xJIM9K7y4y1v3c1NP6NNC%2B%2FGx1R8BiTd8F2X2f2N#rd)
+
 * [不善社交？研究揭示：可能是你小时候，父母做错了这件事](https://mp.weixin.qq.com/s?__biz=MzIwMzA1MzU5Mg==&mid=2652141983&idx=1&sn=a5c30d41c458b404b56f5e832ce6ce95&chksm=8d3596e8ba421ffe7cb270546ed14a0f2c81771d3dffd711c6ecefae229172c67d99a061b5bf&mpshare=1&scene=1&srcid=&sharer_sharetime=1593264217958&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&exportkey=ATfebKjhnXUf652szew0HAM%3D&pass_ticket=BlY1Cg6vhlIagSWEs4ZI9Pt1xJIM9K7y4y1v3c1NP6NNC%2B%2FGx1R8BiTd8F2X2f2N#rd)
+
 * [这个国家把几十万多生的儿童聚起来散养，最终成了教科书级的灾难片](https://mp.weixin.qq.com/s?__biz=MzA3MzE3NTg1OA==&mid=2247527412&idx=1&sn=e66ea8d0b8ce792c4aa581e6632263d1&chksm=9f112da9a866a4bf7aae6cc0d9cb6eb4bbe465c18ba9abd55a757abdf7a4e43ca977ba18b19f&mpshare=1&scene=1&srcid=&sharer_sharetime=1593038475618&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&exportkey=AZO%2B67C%2F9DS6SnfFgIhzJSQ%3D&pass_ticket=BlY1Cg6vhlIagSWEs4ZI9Pt1xJIM9K7y4y1v3c1NP6NNC%2B%2FGx1R8BiTd8F2X2f2N#rd)
+
 * [挨自己的揍是什么体验？VR 技术或能遏制家庭暴力](https://mp.weixin.qq.com/s?__biz=MjM5NDA1Njg2MA==&mid=2652004095&idx=2&sn=7892257e58b2bc63ba2a506c40077759&chksm=bd6b610c8a1ce81abff6d8ddd14f948292c17d0f423577e9c3caf8f2d8a9511689cf3c63edc1&mpshare=1&scene=1&srcid=&sharer_sharetime=1593039552431&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&exportkey=ARCE5vxanSpRfh3w%2FwIMsVs%3D&pass_ticket=BlY1Cg6vhlIagSWEs4ZI9Pt1xJIM9K7y4y1v3c1NP6NNC%2B%2FGx1R8BiTd8F2X2f2N#rd)
+
 * [白天养生，晚上熬夜，真当身体啥也不知道？](https://mp.weixin.qq.com/s?__biz=MzI3MzE3OTI0Mw==&mid=2247500936&idx=1&sn=083e075e86d6c29e1dd93c9eeab6ca17&chksm=eb25b38cdc523a9a28bf5d16f68440d161c077d372c81c2045db248192286d7548898adbeb25&mpshare=1&scene=1&srcid=&sharer_sharetime=1593127838935&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&exportkey=AbjjuI3DG9ekrHrSFIZhX38%3D&pass_ticket=BlY1Cg6vhlIagSWEs4ZI9Pt1xJIM9K7y4y1v3c1NP6NNC%2B%2FGx1R8BiTd8F2X2f2N#rd)
+
 * [“早死早超生”：让你不再拖延的招数来了](https://mp.weixin.qq.com/s?__biz=MzI3MzE3OTI0Mw==&mid=2247501214&idx=1&sn=58b2312093e1b5f3dc46de204db85489&chksm=eb25b29adc523b8cd94379c5e587f03e293d858f71b3a6fa6553fb4562788068b337221d7f90&mpshare=1&scene=1&srcid=07036aez1ItMwJpxAGIwOgTn&sharer_sharetime=1593749099943&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&exportkey=AX1sTjd%2BPwurynHBu%2Fbral0%3D&pass_ticket=x8lAqCCe%2BPiVnQ2DlgjJvugdEOA5RHNSKPVNWwMs0BeQ69UI0i%2BClwtZqDFDFNtX&wx_header=0#rd)
+
 * [因为蚊帐，蚊子改变了它们的咬人习惯 | 科学 60 秒](https://mp.weixin.qq.com/s?__biz=MjM5NDA1Njg2MA==&mid=2652004601&idx=2&sn=2a206288eea383c5df3699982867f184&chksm=bd6b5f0a8a1cd61c4a78e89f5352b4f0b514fc6753fecea58b4b688b6a08bc3dff964d9bc68e&mpshare=1&scene=1&srcid=0705JQ1wtnxVSf2uPxsHPcQ4&sharer_sharetime=1593911341637&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&exportkey=Ad9378CiRFlinYzyue2JXJw%3D&pass_ticket=x8lAqCCe%2BPiVnQ2DlgjJvugdEOA5RHNSKPVNWwMs0BeQ69UI0i%2BClwtZqDFDFNtX&wx_header=0#rd)
+
 * [史上最恐怖的真人秀：用 72 分钟，将普通人变成杀人犯](https://mp.weixin.qq.com/s?__biz=MjM5MDAwNTk0MA==&mid=2653094110&idx=1&sn=3d38da3a05b4c35268f757ffc073909d&chksm=bd9ccf058aeb46130d2978ebeab65fcbce33731cfdd9ee76cf96aade372d60334cebf5646f21&mpshare=1&scene=1&srcid=071081wNVc3A4kIO2wxXdgbO&sharer_sharetime=1594339297611&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [怎样回短信更容易找对象？心理学研究：不要秒回！](https://mp.weixin.qq.com/s?__biz=MjM5NDA1Njg2MA==&mid=2652004958&idx=1&sn=c777b39fc49992221488d14e0452ff26&chksm=bd6b5dad8a1cd4bb22a171361c2a740e8d48c6410800c740b543de37a100b35defb6a3c2a0dc&mpshare=1&scene=1&srcid=0711PXXqjy6NxdZ74sHbUM8k&sharer_sharetime=1594418770480&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [想提高思考能力？向后走几步就行 | 科学 60 秒](https://mp.weixin.qq.com/s?__biz=MjM5NDA1Njg2MA==&mid=2652004992&idx=2&sn=f00a505552770a69b5417f9b2a0075b0&chksm=bd6b5d738a1cd465763f6b9b53501db27aeb1b62785564413533875e04aa2b34285cd3572971&mpshare=1&scene=1&srcid=0712Q7EaChNsMVWgwC5jVxZh&sharer_sharetime=1594509572353&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [旁观者效应是人类独有的吗？](https://mp.weixin.qq.com/s?__biz=MzA4NDU1MDY5OA==&mid=2653201826&idx=1&sn=8aa0354d318b2f14ca33bcc79b4981a3&chksm=843570e7b342f9f1f1262ecd62024144edbecc71d94e2eed1c8f27de212bf9b7b8b552569e07&mpshare=1&scene=1&srcid=0712AQ1bGQrh6OigH32UnokG&sharer_sharetime=1594522122266&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [意识到挑拨仇恨这么容易后，这些孩子的成绩迅速提高了](https://mp.weixin.qq.com/s?__biz=MzA3MzE3NTg1OA==&mid=2247528810&idx=1&sn=ebc1512878e222d0aaa2f2fddad92331&chksm=9f113737a866be214d68e59786afbf388b76925a8f77453768e04042dae8ac0e739fe8bbf2de&mpshare=1&scene=1&srcid=0713dQ1ltUJCcEsjAnaEpals&sharer_sharetime=1594625802513&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [企鹅排泄粪便可以喷多远？获得搞笑诺奖 15 年后，他们又算出了企鹅粪便的轨迹](https://mp.weixin.qq.com/s?__biz=MjM5NDA1Njg2MA==&mid=2652005034&idx=1&sn=0af75d93fb2596440e0e763676e328a2&chksm=bd6b5d598a1cd44f2d2e8aab6b04f5d18c4a47ba3940f50cef78ab2a54733b68f6fa07fd9430&mpshare=1&scene=1&srcid=0713MVwuiITv0ZXDF98FOHKh&sharer_sharetime=1594625305455&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [“动作小电影” 看得越多，勃起功能越差！](https://mp.weixin.qq.com/s?__biz=MzIwMzA1MzU5Mg==&mid=2652142986&idx=2&sn=2d539044ec0929c4ec9cb9f82dd17622&chksm=8d3592fdba421beb4a9fc32460e9910d7af585acf6273604c37234245faaa190f0963590d2ac&mpshare=1&scene=1&srcid=0720YGVcLyohMdrkdpu5VLbs&sharer_sharetime=1595250662869&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [人类进食极限：10 分钟吞掉 83 根热狗](https://mp.weixin.qq.com/s?__biz=MjM5NDA1Njg2MA==&mid=2652005495&idx=3&sn=2c52d7bfcd7b5965b8ea098f8646226a&chksm=bd6b5b848a1cd292449c52ad0088ec3a82196e316fe703dba755481bcaaf91d749446ad3cd52&mpshare=1&scene=1&srcid=0722VlxxRKNJPQUQpQMzvbiP&sharer_sharetime=1595370596172&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [人类卵子对某些精子情有独钟，还会施以额外 “恩惠”](https://www.linkresearcher.com/theses/7437270d-e273-42c0-91e5-ae635edac865)
+
 * [科学 60 秒：泄密的时候，为什么会如释重负？](https://www.linkresearcher.com/careers/6abcd54c-a15d-4b79-a111-b625814f14cb)
+
 * [科学 60 秒：“哈哈” 和 “呵呵”，什么情况下才表示大笑](https://www.linkresearcher.com/careers/18a667bd-eda4-440a-9c7b-61fba0235285)
+
 * [为什么学渣常觉得自己考得不错，学霸老觉得自己考砸了？](https://mp.weixin.qq.com/s?__biz=MzU2MDQ5Mzc3MQ==&mid=2247504014&idx=1&sn=6503c9cdd0fd1857d4ef293969298e83&chksm=fc05b52acb723c3c3ef7f5084cc9b8338121ac94caa176b0eda539bb8a4f6af0b408f2d2f63a&mpshare=1&scene=1&srcid=0728x6p4IgP1aThCFmhaWq29&sharer_sharetime=1595904478091&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [研究发现：男生更喜欢漂亮的女生](https://mp.weixin.qq.com/s?__biz=MzU3MTE3MjUyOA==&mid=2247512521&idx=2&sn=03491af8cfc33b0c313b5914aab6100f&chksm=fce6c216cb914b0013817c8cd021b4425344892b69ff9570e37e7576454cfe03c40d8a967ee4&mpshare=1&scene=1&srcid=0729WYqRSrIXjEB2g0og7oKy&sharer_sharetime=1595983811913&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [改变进食时间就能减肥：进食时间内还能敞开吃](https://mp.weixin.qq.com/s?__biz=MjM5NDA1Njg2MA==&mid=2652005851&idx=1&sn=10835fac946c9920112f6ae93d136b04&chksm=bd6b5a288a1cd33e754ad6185fb025bbda886a49640dab8fbf39cb7626bbf421cc8437139ecd&mpshare=1&scene=1&srcid=0729jnHqcHWoycNVYL402wNn&sharer_sharetime=1595982247958&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [研究表明：菜鸟爱用右脑，专家爱用左脑！](https://mp.weixin.qq.com/s?__biz=MzI5MTcwNjA4NQ==&mid=2247495612&idx=1&sn=7ad4bf9c5011e8363694b1f727a96849&chksm=ec0e2a36db79a3209572da3c485f04e458ddd0f48ef049fcf04962bb4e597f8c98d9b3596d8c&mpshare=1&scene=1&srcid=0801HP5gnAcDspKyiub6PBPB&sharer_sharetime=1596256003834&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [科学 60 秒：“价格随你定！”“那我还是不买了。”](https://www.linkresearcher.com/careers/9c86b9ba-2f9c-4fa6-ac06-c5b6da6ad539)
+
 * [科学 60 秒：想要看起来更高大？手里拿个东西就能做到](https://www.linkresearcher.com/careers/ff14cb97-7d6e-4bfe-a92f-b072dadafbcf)
+
 * [结了婚的男人才是好男人，做个试验还要奉献肉身，有钱真好发啊........](https://mp.weixin.qq.com/s?__biz=MjM5MDE3OTk2Ng==&mid=2657492858&idx=1&sn=e79bc9e862340b4395d3a5e3cafb035d&chksm=bdda086b8aad817dbac629a948d49a3980ab737583bc0375ece31bf97e67800062a383731d7b&mpshare=1&scene=1&srcid=0804l6YIwO9gN6JWLTlAQrxj&sharer_sharetime=1596499596288&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [狗子实力模仿人类腿瘸，主人：你是真的狗](https://mp.weixin.qq.com/s?__biz=MzAwNTA5NTYxOA==&mid=2650889522&idx=2&sn=6cc9fa6426ea9396a6fe327a74190989&chksm=80d4149fb7a39d89704346cec63ac9c39954fe8ce142a9ebc311e02c0a3089316cb5525669e9&mpshare=1&scene=1&srcid=0806grhyGVOuz4Ydgusu1fKj&sharer_sharetime=1596757439950&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [一个颠覆性答案，登上《科学》封面：是什么弄破了这些泡泡？](https://mp.weixin.qq.com/s?__biz=MjM5NDA1Njg2MA==&mid=2652006605&idx=1&sn=260ceddb02c127653e0cd810d4cc3503&chksm=bd6b573e8a1cde284cb2a04cf0edd4ccf36f48ccaecb718abdd79cbf132368a0b2156d34386e&mpshare=1&scene=1&srcid=0810pm3PgFivl5FpoCa6hDWp&sharer_sharetime=1597012929035&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [放下压力，别让你的 “后浪” 输在起跑线上](https://mp.weixin.qq.com/s?__biz=MzI3MzE3OTI0Mw==&mid=2247502728&idx=1&sn=43d6b99ff575b82f95470168c2cb6456&chksm=eb25bc8cdc52359a12593fc428ad05404e7bae888272a10d391e236ce24354081aa2d8acaf03&mpshare=1&scene=1&srcid=0809B8d4O0S4ZJpUNZfFo9kn&sharer_sharetime=1596930721991&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [在牛屁股上画一只眼睛，真的能避免被狮子攻击](https://mp.weixin.qq.com/s?__biz=MjM5NDA1Njg2MA==&mid=2652006649&idx=3&sn=b9886db9cf8d9d806208569281d6fb10&chksm=bd6b570a8a1cde1c7c669b060a78d3dcf6c301936f877db349db219639e72eb09187337d6671&mpshare=1&scene=1&srcid=0811ypNasIDeyKg1ph31tZ8I&sharer_sharetime=1597102077416&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [为什么有人要在牛屁股上画画？](https://mp.weixin.qq.com/s?__biz=MzI3MzE3OTI0Mw==&mid=2247503236&idx=1&sn=061fd9c847b23ee0492846677e225479&chksm=eb25ba80dc523396aec3ea621b3012e9cc82fbb035d42529a354ba3be277d24f590176770b92&mpshare=1&scene=1&srcid=0824XBpMvUKoDsue3e1wv7ld&sharer_sharetime=1598224920970&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [针灸有用吗？哈佛学者小鼠实验揭示其两面性：帮助治疗致命疾病，也可能造成严重后果](https://mp.weixin.qq.com/s?__biz=MjM5NDA1Njg2MA==&mid=2652006840&idx=1&sn=5a7f7528392dfdc1ce5a09829e846076&chksm=bd6b564b8a1cdf5d4d7a36ea6f1c4de65fc9bca5ea159100b562cbd4e630d4f44262d497818d&mpshare=1&scene=1&srcid=0815Vbx6gmLEhuNCPtdAztFx&sharer_sharetime=1597533879925&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [艺术家偏爱的颜值背后，藏着 “美” 的秘密](https://mp.weixin.qq.com/s?__biz=MzI3MzE3OTI0Mw==&mid=2247502926&idx=1&sn=c4034e31fc755f99907c9088d424bf1a&chksm=eb25bb4adc52325cb50c7745e449814d7b8d04ff3aa3bb7e2efb2aacf1407005707f6fd0a239&mpshare=1&scene=1&srcid=08165a0E2VhFBS7WIen6REY0&sharer_sharetime=1597533617745&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [研究揭示：男生长得帅，连丈母娘都会更喜欢](https://mp.weixin.qq.com/s?__biz=MzU3MTE3MjUyOA==&mid=2247513217&idx=1&sn=9d50fd5f022397112c3f0bd77ed74da2&chksm=fce6c75ecb914e486ea4ceb7ff4e223157438536d53c37c825d136c1132888e609679ee0bace&mpshare=1&scene=1&srcid=0815lzFFV0O6ZKHy1567vOEF&sharer_sharetime=1597475382448&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [研究发现：海马区体积竟与收入相关！收入越高，记忆力和语言能力越好！](https://mp.weixin.qq.com/s?__biz=MzIwMzA1MzU5Mg==&mid=2652143962&idx=1&sn=ebff623942b56a3e183df3e70aed8427&chksm=8d356e2dba42e73b462fda85f54ca935d65f38ce0874cfb4ff140ca7b996c93f3dda2d4e9299&mpshare=1&scene=1&srcid=0816Un7CDUUBMRHYl41X13VZ&sharer_sharetime=1597579398967&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [地铁运行时，车窗外的清晰广告是怎么显示出来的？](https://mp.weixin.qq.com/s?__biz=MzAwNTA5NTYxOA==&mid=2650890566&idx=2&sn=0ab609868cc7ca5596ba283d379cfa1d&chksm=80d428ebb7a3a1fda053974a34b655dbf691dfcbd243446668fa362b22b934d7ff28910702aa&mpshare=1&scene=1&srcid=0818nOKoMttn5Q6KpX7reh0P&sharer_sharetime=1597717514091&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [拥有立体嗅觉，其实人类的鼻子也很灵啊](https://mp.weixin.qq.com/s?__biz=MzI3MzE3OTI0Mw==&mid=2247502990&idx=1&sn=d286566375185e63debcce57d070cd8b&chksm=eb25bb8adc52329c91c395c72c8383a1e552b21b7e18c58999bf0c174c6c31941d3e74c9c201&mpshare=1&scene=1&srcid=08202NnGlgibvJV7FBsRtuLp&sharer_sharetime=1597882601242&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [许幻山出轨，都是林有有的错？这篇 SCI 带你揭示出轨的真相](https://mp.weixin.qq.com/s?__biz=MzIyNzk1MTg5Mg==&mid=2247490036&idx=1&sn=61fc567adb3ab06a3076024924ca1917&chksm=e8580d8fdf2f849987f4214ca35bba892988154a09e2854462019d69970e98d97f8fd4495dad&mpshare=1&scene=1&srcid=08227tGuC0xevNtx7Dk2O835&sharer_sharetime=1598098859574&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [研究显示：生男生女，更多由父亲决定！](https://mp.weixin.qq.com/s?__biz=MzI4NzExMjU0Mw==&mid=2651128925&idx=1&sn=29d3d0eda8adc00b7c13c03eb3fafb4b&chksm=f023086dc754817b2a3883f8498b905fde49b94dd023028b93f5632fcce19cd59c3167c04f9a&mpshare=1&scene=1&srcid=0823oHBr22xa0gvGxWM3PSUR&sharer_sharetime=1598136959228&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [为什么没有一只猫能活着走出实验室？](https://mp.weixin.qq.com/s?__biz=MjM5MDE3OTk2Ng==&mid=2657496371&idx=4&sn=87c211c6b9dc5da20dc7804eb7ae3925&chksm=bdda3a228aadb33440f84b7fbd38169b019c2b9cdc734ddb795b710ea0c4f27bd9d253b31f2c&mpshare=1&scene=1&srcid=0823jrZiYnHm5KJfpw14ViaF&sharer_sharetime=1598138198689&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)：实验设计，拓展思维，万法归宗
+
 * [这道小学题，竟然比心理阴影面积还难算](https://mp.weixin.qq.com/s?__biz=MzU2MDQ5Mzc3MQ==&mid=2247504927&idx=1&sn=0cd7cb8ee98f2a6e702cdb8672e8fa88&chksm=fc05b1bbcb7238ad47a8fc34e27e0f9e7128d3285d7caf9b3bb0b6e7db953bc807777aa63fff&mpshare=1&scene=1&srcid=0823duT03MI1l1zxXa477M6c&sharer_sharetime=1598179436286&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)：不同视角，不同方案
+
 * [你以为的灵感枯竭，很可能只是一种错觉](https://www.linkresearcher.com/theses/dff21ca5-92eb-405f-8604-340f3e634ee1)
+
 * [坐着不动却每天掉肉 2 斤，这种脑力竞技和马拉松一样燃脂](https://mp.weixin.qq.com/s?__biz=Mzk0NzAyMzgzOQ==&mid=2247519938&idx=1&sn=9e73a3328528f559f1a86f585cc23941&chksm=c37ff472f4087d64354a521ce6508d675aa62bfd9e569867c159947c5319be3f0f5506fcf98d&mpshare=1&scene=1&srcid=0827A5p2if5SGUxG9uPee6o9&sharer_sharetime=1598486303498&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [超 10 万人的大型研究发现：爱 “追剧” 的人患抑郁症风险更高...](https://mp.weixin.qq.com/s?__biz=MzIwMzA1MzU5Mg==&mid=2652144333&idx=1&sn=b4e4a4503afb570c2272329390686ceb&chksm=8d356dbaba42e4ac14fb38f9d64ea1689304884417a560e4e10a8787c81d8a6d1be162a845ad&mpshare=1&scene=1&srcid=0828vzuksCVBJe3jmpaOnsaM&sharer_sharetime=1598579481685&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [别再吼孩子骂孩子了，他们的脑子真的会受伤变形](https://mp.weixin.qq.com/s?__biz=MzI5MTcwNjA4NQ==&mid=2247497190&idx=1&sn=0ceb4e71d19be5a3ba5ff1423d017cce&chksm=ec0e306cdb79b97af84dab2fcb364bba3636e8379194278749e0848670518c58dd01a78e3133&mpshare=1&scene=1&srcid=083085EmAcunySEzG7mwGOyC&sharer_sharetime=1598755170842&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [研究发现：喝咖啡可以增加彼此好感，并能促进团队合作！](https://mp.weixin.qq.com/s?__biz=MzIwMzA1MzU5Mg==&mid=2652144507&idx=2&sn=fa564f40105cc208dd8f3998e9118107&chksm=8d356c0cba42e51a2e66c2f9c232bc1150dbb7b631e961201bc35e6d18a971d6ce017422a261&mpshare=1&scene=1&srcid=09023gE9vMAPGekZhih8xQyj&sharer_sharetime=1599025788065&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [新麻醉技术产生了严重副作用，他用自己的身体做起了试验](https://mp.weixin.qq.com/s?__biz=Mzk0NzAyMzgzOQ==&mid=2247520986&idx=1&sn=04bfcf382856d154558a281a95f9f31b&chksm=c37fe86af408617c4ed6c1cfac6bbb59b37bfb9fe55a4136e9a15c1a68a732ef227ba8103aa5&mpshare=1&scene=1&srcid=091599kLrjLvb7zzeUJew7VY&sharer_sharetime=1600122093148&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [埋藏 60 年的黑历史：为了研究，美国科学家曾故意让数千人染上性病](https://mp.weixin.qq.com/s?__biz=MjM5NDA1Njg2MA==&mid=2652008340&idx=1&sn=020d6305e8f31dcb7b51e9b7e1262281&chksm=bd6b50678a1cd97109e4ceaa56c55d1f326ce782bf084439e9c4a2e1cecdd161d9ce0c71979f&mpshare=1&scene=1&srcid=0915xB17QnqukF0XL30KpVxg&sharer_sharetime=1600122165696&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [“穷人” 和 “富人” 到底谁更慷慨，结果你一定没想到](https://mp.weixin.qq.com/s?__biz=MjM5MTA3MDY3Mg==&mid=2653734439&idx=1&sn=184e52380d33d3b91871e22cc725b009&chksm=bd6346988a14cf8e1ca501924346357cb61cef3e1924230b9f49f21468fb442b8b83c7362af4&mpshare=1&scene=1&srcid=0919eME46BoKmCE90HdEdkci&sharer_sharetime=1600484636711&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [人均 18 厘米？研究发现：90% 以上的男性都会虚报 “长度”！](https://mp.weixin.qq.com/s?__biz=MzA5ODQ1NDIyMQ==&mid=2649627169&idx=3&sn=600df8494fe5b05862fdbc5a53639726&chksm=888be583bffc6c95c2de7fc0efbb56c6c832d5ba8202abb490ce59314782942e76ef0c1d7fb4&mpshare=1&scene=1&srcid=09191Aeye490r52ijvt95c1F&sharer_sharetime=1600505180385&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [BMJ 二十年最火论文：性行为时生殖器会变成什么样子？](https://mp.weixin.qq.com/s?__biz=MzU3MTE3MjUyOA==&mid=2247515457&idx=1&sn=fc0ba2601475473d48bc6429fbef780b&chksm=fce6ce9ecb91478865e94d1afb1628229f03c60d8a182d5c9bc173c19ca81287a4476ba9821c&mpshare=1&scene=1&srcid=1001EHQ0I4N4v8bdPoRnK3ON&sharer_sharetime=1601554764868&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [研究发现：男生更喜欢漂亮的女生](https://mp.weixin.qq.com/s?__biz=MzU3MTE3MjUyOA==&mid=2247515315&idx=1&sn=1c420c4951af0ba48b0ee96f5b441bf0&chksm=fce6cf6ccb91467adeb2e7ddcedd8e4a3a36fc00456dfdbeaac34072fd9e2fcc325f79f00963&mpshare=1&scene=1&srcid=09295YOEYmWJka874zwmvw03&sharer_sharetime=1601339532419&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [被关小黑屋 48 小时，剥夺所有感觉是种怎样的体验？](https://mp.weixin.qq.com/s?__biz=Mzk0NzAyMzgzOQ==&mid=2247521946&idx=1&sn=f692785b3425d97de09a8f4715a5dcba&chksm=c37fec2af408653cc1b1d129dbfd2dacab3c6ea191b793d969ad08aa28b919bc85da504937fc&mpshare=1&scene=1&srcid=0929I6GsMI0Wy2TfrLDHB05W&sharer_sharetime=1601334509229&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [物理学家在 12 年前发现了一个反常现象，看完你会改变尿尿的方式](https://mp.weixin.qq.com/s?__biz=Mzk0NzAyMzgzOQ==&mid=2247521805&idx=1&sn=05b614763cc5e2418d1f12d5cceb454c&chksm=c37fecbdf40865ab9956ec97d9bd074d7bc9a3b84874032f51c37436ba6ac1ee934cb55ee963&mpshare=1&scene=1&srcid=0927zHliOxjySBgv4GJoRU2A&sharer_sharetime=1601162409723&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [憋住不放的屁最后去哪了？知道真相的我再也不忍屁了！](https://mp.weixin.qq.com/s?subscene=11&__biz=MjM5MDE3OTk2Ng==&mid=2657503297&idx=1&sn=13e968ed0e0b7f8e33da27195362ba16&chksm=bdda5f508aadd64665eb88d67371565af728de9bd18dc0b3b03deb792678bba65398d153200f&scene=7&ascene=65&devicetype=android-29&version=27001337&nettype=3gnet&abtest_cookie=AAACAA%3D%3D&lang=zh_CN&exportkey=ARInKdPd%2Fpey7rYlA0ubATs%3D&pass_ticket=23rZc5cLCJ717nIPfC08%2FBi2XG%2FJM8Jrb%2FNng%2BGxV%2F%2BLyyIvjXsG0HFPUcCioMbE&wx_header=1)
+
 * [8 天假期过得飞快？可能是因为大脑没想到会这么爽……](https://mp.weixin.qq.com/s?__biz=MjM5NDA1Njg2MA==&mid=2652009566&idx=1&sn=283dd3294921d11ab437091785ea5ba2&chksm=bd6b4bad8a1cc2bb727c654d0b849e796bdbc78e5add76d99d372aa3ca9c68b4c8880152f515&mpshare=1&scene=1&srcid=101038weDuQGKx5mzLlvO4qE&sharer_sharetime=1602282160623&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [你的脑子为了骗你，都做过啥奇怪的事？](https://mp.weixin.qq.com/s?__biz=MzIxNzYzODAyNw==&mid=2247509481&idx=1&sn=6d9c527787d8f90f69fd7d7ff85b8f61&chksm=97f4500da083d91b06e3b9212d7939a957cec34e8f71ad561574bc8c1e8a4ca4c972f7bdc93a&mpshare=1&scene=1&srcid=1012wuScAVDQwlADct3W8J9v&sharer_sharetime=1602474499481&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [顶级期刊研究：把妈妈的粪便喂给新生儿，有助于宝宝的肠道菌群健康](https://mp.weixin.qq.com/s?__biz=MjM5NDA1Njg2MA==&mid=2652009703&idx=2&sn=a16a38126257210545aaae016ca9f9e7&chksm=bd6b4b148a1cc202211b5d3631bff434919dd93539d46442f7f45c2deb6de5f5ca8111e35958&mpshare=1&scene=1&srcid=1013qYt0TLHIBcsvGYoasg0e&sharer_sharetime=1602546396760&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [穷到没钱发奖状和奖杯，报销不起差旅费，这个最穷科技奖怎么坚持了九年……](https://mp.weixin.qq.com/s?__biz=MjM5MDE3OTk2Ng==&mid=2657507330&idx=1&sn=e4759fad30b1ab094c4b19d26cad7104&chksm=bdda4f138aadc60516d42dda603184d9b6c3423ec2eef50bec7315cf523ae0edf8c5d873faa9&mpshare=1&scene=1&srcid=1021zWE08pfym5W1ocYIHGNf&sharer_sharetime=1603233821635&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [身体哪个部位被蜜蜂蛰最疼？变态的知识增加了！！！](https://mp.weixin.qq.com/s?__biz=MzA4MzMxNTk3Ng==&mid=2650945730&idx=1&sn=17a895035f24f57b409ae0f0fd3655bc&chksm=840ec4a5b3794db31d9270345e738c4ac0002b68078bfa6bd990d908d015127b148b2410b1bd&mpshare=1&scene=1&srcid=1022buw8POppmEqoC5tjD9yg&sharer_sharetime=1603319214186&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [进入社会后开始 “自闭”？这其实是走向成熟的表现](https://mp.weixin.qq.com/s?__biz=MjM5NDA1Njg2MA==&mid=2652010319&idx=2&sn=58cb08eb18721e09ade746d4be8ea15c&chksm=bd6b48bc8a1cc1aa6df4937bfce0f040bd905dfa4c29236a4bffaa2f2d7fcefe6709b488cd3d&mpshare=1&scene=1&srcid=10278sPeSN2CcmlRkGLCEVRN&sharer_sharetime=1603751857044&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [科学 60 秒：被吓一吓之后，就能更好地感受艺术？](https://www.linkresearcher.com/careers/32e2b1ee-51df-4ae1-83cb-e7867610f0c7)
+
 * [科学 60 秒：喝杯咖啡，会让别人说的话听起来更甜哦](https://www.linkresearcher.com/careers/40c06a06-5dc5-45d4-ba08-4714834048ba)
+
 * [课文总是记不住？科学家揭示记忆里的平行宇宙](https://mp.weixin.qq.com/s?__biz=MjM5MTA3MDY3Mg==&mid=2653736267&idx=1&sn=d637379f49dbb391d251e88db84a15b7&chksm=bd634df48a14c4e2f54ebdefe543813f7c8a61df1a3cfedb61cd177d4c8f5a77a666596db5fd&mpshare=1&scene=1&srcid=1106pDRWwlg1UDBNFvPbI2Rq&sharer_sharetime=1604657466977&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [“爱因斯坦兄弟” 事件轰动纽约时报！双胞胎乱写博士论文，整容后越黑越红，竟然名利双收.......](https://mp.weixin.qq.com/s?__biz=MjM5MDE3OTk2Ng==&mid=2657511431&idx=1&sn=eda872bbc9ae3ca50a8fd8f053dd254b&chksm=bdda7f168aadf60096025ac1e1017823072b99a76f9d398cf36e4d56f1aa9142282e55774592&mpshare=1&scene=1&srcid=1109RU9RDqqOOTKr0hyiIP1D&sharer_sharetime=1604923063330&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [进入社会后开始 “自闭”？这其实是走向成熟的表现](https://mp.weixin.qq.com/s?__biz=Mzk0NzAyMzgzOQ==&mid=2247524040&idx=1&sn=6628ddd3678fb9c0042078e8dadc72d8&chksm=c37fe478f4086d6e464c08afd07acd06c6c7314a7577988810db9e78bca404a2acf96ca384d7&mpshare=1&scene=1&srcid=1109E31VYsaXRG74kN3d4xdl&sharer_sharetime=1604922963972&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [边玩电脑边刷手机，正在让无数年轻人记忆衰退](https://mp.weixin.qq.com/s?__biz=Mzk0NzAyMzgzOQ==&mid=2247523927&idx=1&sn=9bfb9c4aba29243ebb5f74312cce77eb&chksm=c37fe4e7f4086df1dac55570c6407c2e484f464ae93f34ddd35dc83e7b1bc8631fe2f43a9942&mpshare=1&scene=1&srcid=11062o1T1dqHaLL5AMf4q2s0&sharer_sharetime=1604634951994&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [100 个实验只能验证 36 项，心理学还靠谱吗？](https://mp.weixin.qq.com/s?__biz=MjM5NDA1Njg2MA==&mid=2652011249&idx=2&sn=586b05e8a47b104146183ca2f951bdc2&chksm=bd6b45028a1ccc14356869ed82952c8a6ac11913017b575b0de33cb6bd930cb1b581056102c7&mpshare=1&scene=1&srcid=1110mfWUBwuMTGlS0767Em1w&sharer_sharetime=1605048399935&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [9 个让你夜不能寐的思想实验](https://mp.weixin.qq.com/s?__biz=MjM5MDE3OTk2Ng==&mid=2657513055&idx=5&sn=53507554c5f03dccd9e253251446c662&chksm=bdda794e8aadf058af89f0856964a92678e488d03b38f30a2b89041190a4a8e354505b866e1f&mpshare=1&scene=1&srcid=11180zShFmFVwsEbia3mAGWl&sharer_sharetime=1605701625228&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [螃蟹在蒸锅里逐渐变熟时，它们有多痛？｜科学 60 秒](https://mp.weixin.qq.com/s?__biz=MjM5NDA1Njg2MA==&mid=2652011721&idx=2&sn=4152ca93abd4655dba5064511b150c84&chksm=bd6b433a8a1cca2c42a4b772dcd7f4337e25c373a023721d669817a1d58c8c2d541c5b734557&mpshare=1&scene=1&srcid=1122j8uvugJEQLckJma2YU5p&sharer_sharetime=1606020247871&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [闻了闻男性害怕时流下的汗，她们露出了这样的表情｜科学 60 秒](https://mp.weixin.qq.com/s?__biz=MjM5NDA1Njg2MA==&mid=2652012417&idx=2&sn=5d8ebffa1311d8ed620d2e5b0759b170&chksm=bd6b40728a1cc964559bca63a036883beb6461b9a2361f4945792490ced1ab0eed9aef55c3c9&mpshare=1&scene=1&srcid=1206vv9p1UEGAfEzcaTmfaOV&sharer_sharetime=1607215391170&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [广告篡改着你的记忆｜科学 60 秒](https://mp.weixin.qq.com/s?__biz=MjM5NDA1Njg2MA==&mid=2652012737&idx=2&sn=573f8cb77e9a641499490e9d1207990e&chksm=bd6bbf328a1c3624c2dfca0d4672accadb47961f213f26860f94a3537e516f90d8a6f59738cf&mpshare=1&scene=1&srcid=1212TyhUZDqrCoxbYXKmBmaP&sharer_sharetime=1607777972796&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [数学好＝编程能力强？MIT 新发现：二者激活大脑区域并不同](https://mp.weixin.qq.com/s?__biz=MjM5NDA1Njg2MA==&mid=2652013276&idx=3&sn=79e29b8c98836740db219edbf7221cf6&chksm=bd6bbd2f8a1c3439f53c55bba209c6a66af110a45e777ff653df4fe1502475f5316747afc2dd&mpshare=1&scene=1&srcid=1222m1I5Vdvw8AbYjh7nGO3D&sharer_sharetime=1608674886356&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [为了治胃溃疡，他喝下了自制的细菌汤](https://mp.weixin.qq.com/s?__biz=MzAwMzc2MTA4Ng==&mid=2247508146&idx=1&sn=3b26ff4f3a76755c069a5ac99c125d63&chksm=9b34d663ac435f75bc744748b395efdf3c0c3c3de58b04a8365fe1881b94d460c578a8413ec5&mpshare=1&scene=1&srcid=1225rff4i55UtL0QPpr9D5T2&sharer_sharetime=1608897359509&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [说脏话使人快乐？至少能让你的身体更愉悦｜科学 60 秒](https://mp.weixin.qq.com/s?__biz=MjM5NDA1Njg2MA==&mid=2652013540&idx=2&sn=c10d1bb74d810c21d91187ec5b477667&chksm=bd6bbc178a1c3501d29684ae5ba32f0bad5e321b4086d8f0cc1df2ef065e65922aa98ecc1eb1&mpshare=1&scene=1&srcid=1227tfPRIryJFPpwfanCDiYQ&sharer_sharetime=1609031046952&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [搞笑诺奖扫地神僧：曼哈顿计划最年轻成员，却专注扫地二十年，年过八旬终获早该属于自己的真诺奖](https://mp.weixin.qq.com/s?__biz=MzU2MDQ5Mzc3MQ==&mid=2247511130&idx=1&sn=c726fb6b56bbdd6af9ebabd89b3a4f1e&chksm=fc05c9fecb7240e8acf9326fff8725380cd90fd2f7266ca17ad98e679e682ebf7057ae0564a3&mpshare=1&scene=1&srcid=0103WjiG7ZEMBwTBWBVSvter&sharer_sharetime=1609668743285&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [一跳广场舞就停不下来？这里有人类演化的秘密](https://mp.weixin.qq.com/s?__biz=MjM5NDA1Njg2MA==&mid=2652014157&idx=1&sn=5de9a793c33961f0b14668ad7bbc581d&chksm=bd6bb9be8a1c30a855834dd3c72e3f826fa07d49a02b75c15f2a3997a5ff3778265db2a05d35&mpshare=1&scene=1&srcid=011282sEkVy1yb52fZLMZfXr&sharer_sharetime=1610402648321&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [聪明的乌鸦不仅能喝到水，还会密室逃脱？](https://mp.weixin.qq.com/s?__biz=MzAwNTA5NTYxOA==&mid=2650949942&idx=1&sn=8cc36e10257ea03f7637ec5f30f2decc&chksm=80d7009bb7a0898d0e1ff2b06ea7aee12de2f90bd890861e471663e13afca93053a818dd1ed5&mpshare=1&scene=1&srcid=0114RzGThBFoM6fiCJLXhw2A&sharer_sharetime=1610596348857&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0#rd)
+
 * [中国这门失传已久的武林绝学，竟让研究它的老外拿了诺贝尔奖](https://mp.weixin.qq.com/s?__biz=MjM5MDE3OTk2Ng==&mid=2657548471&idx=1&sn=d065fb3dbc256a03966eedbaa11c6d6d&chksm=bddaefa68aad66b0dd416e2bd3e18101d77d5f11ed3ef68773e594d16e991f6fcd21d413f250&mpshare=1&scene=1&srcid=020766na4Rvp0kydcNatXz8y&sharer_sharetime=1612709391393&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=0587a61d5e72494df8d318730dd9258f60666522036e99a8c097258f62c3e2b6c560621b4b263a7b89cb33934d2a09b5dcb9595760923010305f6d87288ca8c025e49bc199aa39e3acff4e36d78057843cea343a65803a4d37b034bb56d3f831695f50e9878bd887768a9e9430beb511f94c228ff5949c69be2dd4496c44433d&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+7&version=62090529&lang=en&exportkey=AQWJcbKmEnnKpsLf%2BiUQOyU%3D&pass_ticket=z5nvjktVcXkquM4Rw0Hg2ePj%2BFscsEYHZcK8tWxrcrl6yQbgLdFs7ORsuYsWcKVq&wx_header=0)
+
 * [“笨的像猪一样”...... 猪：这 “笨” 锅我不背！](https://mp.weixin.qq.com/s?__biz=MzA4NDQ1OTY5Nw==&mid=2649739315&idx=1&sn=0c48c0ea61e12cc0f2e294d223af3ec7&chksm=87fd99edb08a10fbddd99381e80bb718e8cb2cbce846cc3db491ef4a751545bfe666d6292ed0&mpshare=1&scene=1&srcid=0219zxUNFxwxWHbgh9xEG8H9&sharer_sharetime=1613696230716&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=cf160bd9b3f0f5e6ed1e29fb5232c20a158f4566978d5310441ff1a96773890722853a417ee4ba5f338cab87d1e86fe723bcc694819f05d2acc878aada5e605db224a5df1662b88ff2e35f2e7ecc6e2d32195b83e1359c9f2081529b59d214dbccc90b33fee42e16c773965f22012e0ab733744fe1541518b3b826cc3cad32b4&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+7&version=62090529&lang=en&exportkey=AYCizQSkClGLDIJjeXs63Kw%3D&pass_ticket=LopQy6maM4zzR7uxf%2B75frUn4Af1Ur1yrAPlbVq4frMh0f%2FUHriR2c%2FZsny5aMdH&wx_header=0)
+
 * [Cell 子刊：盗梦空间成真，科学家成功进入他人梦境，并与之 “交流对话”](https://mp.weixin.qq.com/s?__biz=MzI5MTcwNjA4NQ==&mid=2247510795&idx=3&sn=5d49d3daf62c6dd0a15d2c7be0f25386&chksm=ec0e6e81db79e79745c19f1d78fc6657e9e7aaaecfcabbe25e5b941d97185ecdf7122efd5375&mpshare=1&scene=1&srcid=0220R8vj5HQEhu5tPvJvO3SE&sharer_sharetime=1613776542358&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=0587a61d5e72494d9fb3dfcad57de4346a6ad5960d51aa252276d31ff0595f201b8135e758938e1db3dc98a3e07b704aa259cba4dcec0fc2f38175b2f6cdffe95e22425d5aeb93acd585583779305e5d3bf13de7039b23c57a3c072d2d054341e38115b115e98a92008d15897a0a7370def6af2646a23c6bf0ae1fa5ae500322&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+7&version=62090529&lang=en&exportkey=AUwoEWlEwRPN4%2B3M7ZeHxo0%3D&pass_ticket=sSI0qXG2YNBpinv1cMMxlflz4i3GMxXEYKksk7v9S0aXfqs4J275TguBabeNOXfz&wx_header=0)
+
 * [他将一天过成 28 小时，一周缩短为 6 天：人类作息规律的极限挑战](https://mp.weixin.qq.com/s?__biz=MjM5NDA1Njg2MA==&mid=2652015842&idx=1&sn=0167ffb1abc50e09ec75b9260b7729e6&chksm=bd6bb3118a1c3a07183a074502c851ac57b285c2703356840d0d3a1dfaa5fccfcf186d9f9f69&mpshare=1&scene=1&srcid=0221pZin3jqKnX0Nr8VbSLbz&sharer_sharetime=1613949071644&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=6e7650bbf447c502c1e823d42f7691d52d91031004c95197379544290479c49a056a6bd64daae749808983e7da463ec209a95d43e62144348f612664e1d4cfb0a39ce400b166c597a8ed664339b80be11b291039caf69ff75d82ec2180cb0e7871dc1aea264a7802739fc74463467a23c1e6bad91662cf415a39d342fe86bf4c&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+7&version=62090529&lang=en&exportkey=ATnS3ysX%2BmvsVE73I%2BDB78s%3D&pass_ticket=sSI0qXG2YNBpinv1cMMxlflz4i3GMxXEYKksk7v9S0aXfqs4J275TguBabeNOXfz&wx_header=0)
+
 * [只要你敢问，我做梦都敢答……](https://mp.weixin.qq.com/s?__biz=MjM5NDA1Njg2MA==&mid=2652015872&idx=1&sn=9a0452c207dea5698e69cfbc8211903f&chksm=bd6bb2f38a1c3be5f01551bc5a861e80c1a14110afce7c86ebd1151fe30b019d9db893178a59&mpshare=1&scene=1&srcid=0223u8wV7mB0Y7T28YcqWbQ4&sharer_sharetime=1614037580554&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=604423c5b673dab4df9e7bce215ff6f85f086edc4d44f2463326f25951234b34ef461702505afa79a4efc592873b89e0ebda5de44406310614e671cb548989b70f9c41a78e997101c03722209a9ea5db19f60086a65a04862a33b9cfb1c1a2e505689f03e71703e6210d137bb827736d11d8e8e51e25e99fc51da82298d0f888&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+7&version=62090529&lang=en&exportkey=Ac5vf%2BEP4AsS9xPkYbpEbiw%3D&pass_ticket=sSI0qXG2YNBpinv1cMMxlflz4i3GMxXEYKksk7v9S0aXfqs4J275TguBabeNOXfz&wx_header=0)
+
 * [为研究被蜇伤最疼的部位，他连续 4 个月每天让蜜蜂蜇自己：史上最奇葩的为科研献身](https://mp.weixin.qq.com/s?__biz=MzA4OTQ1MTQxNg==&mid=2652101502&idx=1&sn=4b44c2fbb95bc4920a3c045f18356bde&chksm=8bfdc589bc8a4c9f12049a06506b701d796c79af461e2f0476fd43e078f3db2fae58b2055708&mpshare=1&scene=1&srcid=0222ogFcATJRQoAtZpkFcXZa&sharer_sharetime=1614000430434&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=cf160bd9b3f0f5e6a29084b64f5a88e219b92f334318758b12be2e77c5c0eb55fc099ea53693608ad3a05ab5496a702a3cdff0b56149963f96def06cb41d4e4a4f00c98b9cf37a0cdf7bc9320bb65b5c45d5b2550ed576070e61898e35d66be801bbed9c1e57f71d797c00166f69647d1b21a9b0a9001811569a720b03b29d89&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+7&version=62090529&lang=en&exportkey=AWcA4CZwT9y2oxOWLLi%2FvVs%3D&pass_ticket=sSI0qXG2YNBpinv1cMMxlflz4i3GMxXEYKksk7v9S0aXfqs4J275TguBabeNOXfz&wx_header=0)
+
 * [美国政府亲自道歉！为了这个实验，他们让数百人感染梅毒，结果却……](https://mp.weixin.qq.com/s?__biz=MjM5MDE3OTk2Ng==&mid=2657550554&idx=1&sn=961fa09e04e196b2973ee75046a3aa0c&chksm=bddb17cb8aac9edd591939f81103f793c3e631416f7e17c30d96cee6cc8948167cfa4129a5f6&mpshare=1&scene=1&srcid=0224V2OYKRF9X76WaLKlizTF&sharer_sharetime=1614123523536&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=0587a61d5e72494dc40cbe9d818714e8a78c197a19e86f103269a02880e071264b352ea36c8a4fbe240a87168269d8cec21d08cb9369342238975fb6009b666b06fa717385e9419fe29118c4c8e182f10ab7cf02c360ab01674a77d11e3e09c1f3d4fa021483da0f925572af88a62ad142082a87a47c8bfe61d1d5706ef074ea&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+7&version=62090529&lang=en&exportkey=AduFXcsdyvB9tl%2FJuLVpCBw%3D&pass_ticket=R9jpaUXpCFjBDIouxDFPMCQLobV6t8Qz8Er3IVMMhmM7ejfJujHQ7tA1WBEpmau8&wx_header=0)
+
 * [减肥一直成功不了，都怪小学贪吃的那口辣条？](https://mp.weixin.qq.com/s?__biz=MjM5NDA1Njg2MA==&mid=2652015953&idx=1&sn=d101391d2e1ab1087aa15e93b8c3bf04&chksm=bd6bb2a28a1c3bb4c3ec478e6f4e1aa579e34334d71dd3d33eb5e969a74b39f1e3b012274b09&mpshare=1&scene=1&srcid=0225NIIo3J1j4nlmE9AaWali&sharer_sharetime=1614209498068&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=9635e972a6ebf4548309bb6bbce0e3cce663397b317144376dc8e4ff2e5b7d64d28649834c3663fed7f9d59b7a709e3598e96bbd816490fe339dbebb436a7bdf6b77095665eac9a083bbe6894310746caac8ab30064944035b957b4d20d4f92363dce0cea3922ed314664f396596a3102a0406aa665cdc270b0aedcb7fdab428&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+7&version=62090529&lang=en&exportkey=ASkE0yfTfpKJaxNkiHWoHnQ%3D&pass_ticket=R9jpaUXpCFjBDIouxDFPMCQLobV6t8Qz8Er3IVMMhmM7ejfJujHQ7tA1WBEpmau8&wx_header=0)
+
 * [9 个让你夜不能寐的思想实验](https://mp.weixin.qq.com/s?__biz=MzU2MDQ5Mzc3MQ==&mid=2247516946&idx=1&sn=f5bf1880779903851ce2f84a700db1bf&chksm=fc05e6b6cb726fa0d72f18416533f2c283a6e94c40847359e7289ab19e27bab8eea140c0cd62&mpshare=1&scene=1&srcid=0226CJ2FVkXrVDWS3UfyLs5G&sharer_sharetime=1614338133795&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=0587a61d5e72494da97936e0ccf5a56ac09f739044b6aa0af70eb0bf9ac7befeb3287d74b22ab1dc8c651a342df8c8ed7bd43924674babd49fe21c936af9e81931ed59740fb41b5ce453e8e32846e83ab79652970d2026429a3b9123608110cc116021e8e4d53be1ee46b5f6180660951fce03178eb7ad45479f56aafd3cb3de&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+7&version=62090529&lang=en&exportkey=Ae6ulP7bvwffKi9z%2BPLwbCI%3D&pass_ticket=cCRkzujau0HonoGt4ekgO7O9rxiWNrRwdwMS0t9W3q19oRl35zJzS1u2m%2BHy%2FD7x&wx_header=0)
+
 * [你尿尿的时长是不是 21 秒？2 次登上 Nature 封面的他，靠研究拉尿获得 “诺贝尔奖”......](https://mp.weixin.qq.com/s?__biz=MjM5MDE3OTk2Ng==&mid=2657552099&idx=1&sn=834e22dd8481fa46e2ff2d3e6cc942a9&chksm=bddb11f28aac98e4d646537304bbebcc77ce7e5f0d9bb46a1e983ce9d09f3b04fb133cb8d08e&mpshare=1&scene=1&srcid=03028y5Uu9RPs7umG9TtR5jY&sharer_sharetime=1614636560287&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=9635e972a6ebf454b48cfdbb3779f08b62891c9ea690e8784bb19ccd99cfd32053d1819c75b0ce5afa6581ca6fffb35075e0b1cbb0cf1bd67507268d9674f1a767f365c09e88c64530bf57361494882216425dd51ac3c6f6cfcac16fe8e70a2e7c1ecdc222b45458a3c9f8df6d640ae428d43d067376e858632fa5ac69ed2d31&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+7&version=62090529&lang=en&exportkey=AQFemhUOplegolz8dlD6XmU%3D&pass_ticket=tgNgdkqAWVrK%2FQ8INFr4PM9vhY3X1V52uPlsD3EwjRxaqktduVwCq2bucI20BBhW&wx_header=0)
+
 * [最新研究：福尔摩斯使用的记忆法，也能拯救你的记忆力](https://mp.weixin.qq.com/s?__biz=MjM5NDA1Njg2MA==&mid=2652016541&idx=1&sn=3a7d6cfd0485470ec996e75bafb534cc&chksm=bd6bb06e8a1c3978ccf14bfd22d126f06088e15af8913c54bdd1e2b15bf28321b9980503e0b9&mpshare=1&scene=1&srcid=0311ul63QoR1CDB2DHwe6O4k&sharer_sharetime=1615414274861&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=90fb10c1414236662945a24187c75486bf366067dbaf2ce36b73db84b0acf9b654d1d869cdda9ab9ad7bca51d1a4cd3f26b44e67acfd982cb62a184ec347f7c2a805ad19f1213cac7b9cea06f71fc5bb7d6abde409e8387b46d5892d9e17dbf2c5e007373f4cdc89cc10e0e5136fa92d235f36d2c3dc9fca4319bfdd620cf577&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+7&version=62090529&lang=en&exportkey=AQiLXrltSnFNoKoOctLBVD4%3D&pass_ticket=zL1nH44JxYYqloZM0dNEnrWgozlT%2BoKjzbkHfHdAx45oR0GwfZ0sZ4oPwGb%2FsITC&wx_header=0)
+
 * [人如果一直不睡觉，第几天会死？](https://mp.weixin.qq.com/s?__biz=MzA4MzMxNTk3Ng==&mid=2651013970&idx=1&sn=90841f0ed1291344e8b36dab7c8ee142&chksm=840fbf35b37836233bc2be4c4affa9d618bec40a5ee0c6744bfd0fa4823fe104ec5b495530e3&mpshare=1&scene=1&srcid=0312kaIL6sUM9BlkDeka999C&sharer_sharetime=1615500048261&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=8ad0ea50d7c773511e1197f9ddd2640996e2454e6fe956132137ed90fc2ba1a568971f8c70ba7c4796cd9d8b68eb1802f9a6a2a6b01f0fb64a883105775b8e06403efb4526dcca81b75aee0ed0538d1b9ad040f18b52c72c309cd5b52414d3fa67bd3a8c1c476627c82988f2ff28037bcc16740916ff2291f2a1131eed644cbe&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+7&version=62090529&lang=en&exportkey=ASjoooqm0%2FtwNj%2BHntflMb0%3D&pass_ticket=zL1nH44JxYYqloZM0dNEnrWgozlT%2BoKjzbkHfHdAx45oR0GwfZ0sZ4oPwGb%2FsITC&wx_header=0)
+
 * [科学证实，我们真的不会聊天](https://mp.weixin.qq.com/s?__biz=MjM5NDA1Njg2MA==&mid=2652016706&idx=2&sn=24780693cbf36c87325770ac4533e700&chksm=bd6bafb18a1c26a7dc2a46e3c9b602ff6db866e2964e51a4237a1c989544e5549b3746569a60&mpshare=1&scene=1&srcid=03154j7PUfbnhG1TnRmNaWv3&sharer_sharetime=1615759466684&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=054fa246941644a4cbca13da7aa42c39e4092a67e1095e3b48426399d7be47c503036b9b29ea3edfd5500f413a55817bbea7ccd1c674ee2e60a07b2c3977074a171d622eabf30472f2ecaa2674d34998e35fca41efa62acb1161dfd16cba2eccc33704d296b5dc9fc3f07b8992d31f3361b6f99dada374659185df77c561ef31&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+7&version=62090529&lang=en&exportkey=AfGuRrtJ5QDis6Ovu7WATNw%3D&pass_ticket=m1ZMssFVaHb%2BrZqJ4KImayMyxT2VbipgjXhxBIJ%2F5sQqOz7k9R0EE8eiQG1vrIyL&wx_header=0)
+
 * [这些堪称 “疯子” 的科学家，还真的是一个比一个疯狂](https://mp.weixin.qq.com/s?__biz=MjM5MDE3OTk2Ng==&mid=2657554699&idx=1&sn=905b141ce96bdcf7c996ae9e86146415&chksm=bddb061a8aac8f0cfb79e450b046fc9f9a7987cfb73bf4253165ccdcebf5aa87386f8d8d5526&mpshare=1&scene=1&srcid=0317SF7zmSrgD1lTSr1UiGhG&sharer_sharetime=1615932356266&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=439c3bdce1be78fbbb7050bb4e88c6af75e21050187ac490216aff2c615c7429564c4b67f4d8c6d826f1d1a6291fd66d312348fa583cc30db8dbd87c1b7e4e81f313b779a635ada21bfa1b5dc52418690fe3f53ed7117a6b41b1bb95439dffadae5f4b9cbd1ceca1d49f4533fa5dc26a9778708553f93e571e5a9f40ed57d45e&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+7&version=62090529&lang=en&exportkey=AWw40RGKLPp%2Fghbcc%2F7j1iI%3D&pass_ticket=VkBLhGPvfYhiCjFC8HbQCyVg8kb14F14T5OdhoqPo%2B%2FzlnIRNhG7XetJhkpLPL7c&wx_header=0)
+
 * [数学天才突然杀人，躲避追捕 18 年！他 5 年级智商 167，长大后却成连环犯，竟因曾被秘密虐待......](https://mp.weixin.qq.com/s?__biz=MjM5MDE3OTk2Ng==&mid=2657555318&idx=1&sn=21a5f7bf6d96094712b8fd65344d0c34&chksm=bddb04678aac8d71ff8351cf8c15732147bca1cbc2ed1ef85bedee9dc175ff34f6f5a45e91d3&mpshare=1&scene=1&srcid=0318UXUwXJmdHZpQgJuUZcNU&sharer_sharetime=1616105663108&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=054fa246941644a4bf1a3de8fbc917e9cf8d02a807d3f7a50c9c3f30d5d4df83726e173dbd2d9146855a06ce25ba9802f55dbc8087edd0436e2d9edde03c156fec0302d19f40f40df7cf88c7560f3873822a375935b2ee71da426854e314259018ebea620652933f15864f54f72717e9d3b11874f636112a3742f009ed998147&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+7&version=62090529&lang=en&exportkey=AWZMLGEQ4KnmEPQWeHiAxGI%3D&pass_ticket=gff8WOcokSyscHjtqbM4DWRNmVvLzS7pw%2BdlHfElyCbA%2Fn632HRG7lwXjg1qMA2s&wx_header=0)
+
 * [上百项研究证实：让你想要钻地缝的羞耻感，真的会危害健康！](https://mp.weixin.qq.com/s?__biz=MjM5NDA1Njg2MA==&mid=2652016872&idx=1&sn=96015b20f6bbc164948dc95aa06b613b&chksm=bd6baf1b8a1c260dc5146cf2ba71a38ef9e438c573e1eda3ae9e9e3983a1c5be1124ea717f1b&mpshare=1&scene=1&srcid=0319qUpC34uQsbmDAMC1Gsmm&sharer_sharetime=1616105691473&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=c4b23c3bf06071337f0117008850b7bfbfbec6880f1af1eb2baf277c7938cfe29110f46a92effcbb905ad8a16f8ba12b18e90af3dec0aa7cc194d1e2ceb668da6a922ab87fd091528dbcc16ab2dc1e39508b6c7a9997b89e0db493f0de0466c1787c6e7a93cd38da4dc04e4f9f50cbaaa191472f1b3a24b83b306106b9d566bc&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+7&version=62090529&lang=en&exportkey=AUSjZytM8RjKhnYFtAGy%2BJ4%3D&pass_ticket=gff8WOcokSyscHjtqbM4DWRNmVvLzS7pw%2BdlHfElyCbA%2Fn632HRG7lwXjg1qMA2s&wx_header=0)
+
 * [网络看病，为什么总是癌症起步？](https://mp.weixin.qq.com/s?__biz=MjM5NDA1Njg2MA==&mid=2652016961&idx=1&sn=689b365198ca93422d068ddf1f3e8516&chksm=bd6baeb28a1c27a472ca4a21a5f8d150e500333b747ee27e18979bc95bb7c13997aff4a6ed49&mpshare=1&scene=1&srcid=0320TTPQg9qw1EYAkRwOuZbg&sharer_sharetime=1616286250486&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=f857ab6aec5fa6715dcb7763122e02f305ce651e25443667b69ae652a4f13ba00e9aee63e8dbfb8076190f8c4de68c8f92823e34aa5de380d8b634f29a2eb4686d04b709e1362f301695fb672c49cf020ca33e3e8463081050354fb4c9c6c2d257df0ac7e9dc497f6e5714476113b7c9cef873c93efdd54b18c0f89c0a8a570e&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+7&version=62090529&lang=en&exportkey=AfDTnp83WfSeUsRK9iWdN4k%3D&pass_ticket=5HDRvHV56ftI8GxdDDQJRjwn%2B8MJHduMGSBjLGcrECVxXjPTbj2dG9oxhPJmaWD6&wx_header=0)
+
 * [又分享了个假新闻？](https://mp.weixin.qq.com/s?__biz=MzA4NDU1MDY5OA==&mid=2653214585&idx=1&sn=cf55c82fadd032d161a49ba55ed4d075&chksm=8435023cb3428b2a61b5205ae2f0ad9530f4ad179e7dff3290cb8d04b5de2f0dfd05a8cc7df3&mpshare=1&scene=1&srcid=0323WZIOIkfhKZJS11A3SMek&sharer_sharetime=1616502903688&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=439c3bdce1be78fb40a32fb84bc3f478417a68f5faa467c9b6c613c3fe5ea5861db8c95d3b7803279afb0fb43372c908810ed334fc3fb92bde8d588e4c41e7548be6af4d4f139b696a175201d27e3282d1aed663e4ad1100f9edc094c2cc9bcfba82ea28fa3c5fd30e2ac8bdb4c8f8fe8661ff3709adcd6d81fcece70e445b21&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+7&version=62090529&lang=en&exportkey=AVCa6v9pAtyVbP8uXKgGNdU%3D&pass_ticket=BbO3YA8G0ZnvtbmoxM4Fq%2BdDUNXHw7dcaDhTEix3Ei2hSkIS4k9KyL2axQtg7KZh&wx_header=0)
+
 * [一次死里逃生，让她转投这个领域，把自己当做了研究对象](https://mp.weixin.qq.com/s?__biz=MzA5NDkzNjIwMg==&mid=2651713956&idx=1&sn=09b6d1666258558c3f419e4e6a53aecd&chksm=8bbe5c41bcc9d5576b9a08f418b8614b9778f27ce89166aba8a939b9ca1db706318ff5df2536&mpshare=1&scene=1&srcid=0324VL4OxdkK7WTUqMtRCGGo&sharer_sharetime=1616590127932&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=c4b23c3bf060713355ee4221bb1397e0b3520ad9115ebe870f76bd442f2f25c7241a4bd61deb2ae881a54b78fab1e1f2efd79ef71a20467b9b737dbfe1435b3b7a9462c20713052725817b92e10645667a7859996d5cada1f40e55437af0165f3932ac4f9b7ecf83977fe3b933cca9440ceb73295b961a88e7c862b1b84193b4&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+7&version=62090529&lang=en&exportkey=AfO8wFIvU1mAhKHZGg59G4w%3D&pass_ticket=R4gA6eQQe7YgMLebrWgsKJMiRaSVZvJloUg0E%2BvBswneey7d4wJxjToFbns98nxT&wx_header=0)
+
 * [有些的人自制力，可能连乌贼都不如](https://mp.weixin.qq.com/s?__biz=MjM5NDA1Njg2MA==&mid=2652017137&idx=3&sn=544bd00462720524cfe12712774fe598&chksm=bd6bae028a1c2714aaac51c7d875706ad571b947b76905231772baf6bc72ce8ced87834cac8c&mpshare=1&scene=1&srcid=0325YdOUGTVU4wJmMkyVyEkp&sharer_sharetime=1616623433080&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=054fa246941644a403fa52761256b566eb0fe759d867dcee5bdabe9108ba1fea508dec5f2e72272e965fe65e0dc9bd3e97cae4fbf38c766b0c4ada8e778e74c0670f2cf75a744bad0ed18e18e15d4ac4df448a2d4d6fee447385574c0a38693e996b89f00d029e63484f1583481d92a43fa34a470dd7239105dfc87b7180f85d&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+7&version=62090529&lang=en&exportkey=AZ%2F4karbDVmrbLHe9AtIQic%3D&pass_ticket=R4gA6eQQe7YgMLebrWgsKJMiRaSVZvJloUg0E%2BvBswneey7d4wJxjToFbns98nxT&wx_header=0)
+
 * [10 张让你大脑崩溃的图，敢接受挑战吗？](https://mp.weixin.qq.com/s?__biz=MzU2MDQ5Mzc3MQ==&mid=2247517683&idx=1&sn=722ee1373aaa27ea9257471a46750a58&chksm=fc05e057cb7269412dec6c42398efee9f48ac0b6c5800bd568a833d6f42b9841032c86c785f2&mpshare=1&scene=1&srcid=0324GH69uFDFYpoqyIpMXc3E&sharer_sharetime=1616589625421&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=439c3bdce1be78fb0883ec430e49dbdf3a3644bc69bb96b8635b82f93e6bd3650ac53f9d6bad3d744f313c52ba3b9f8c8f71f54b96ae9b96a57aab326fb449f60fcd396b057b87ba1c510e785602785373842900073b15cda6e344100c8dfc3a21839dd075ac84daba10f505356089ed1641f350a4163a16aedda54fcd781d2a&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+7&version=62090529&lang=en&exportkey=AXml9KxN5a7nFzWLfZScrow%3D&pass_ticket=R4gA6eQQe7YgMLebrWgsKJMiRaSVZvJloUg0E%2BvBswneey7d4wJxjToFbns98nxT&wx_header=0)
+
 * [你看见的红色和我看见的，一样吗？](https://mp.weixin.qq.com/s?__biz=MjM5NDA1Njg2MA==&mid=2652017203&idx=3&sn=b00317b8a91396dc3bf00a28e6b7f09a&chksm=bd6badc08a1c24d65425afa436e44b20ea558ea98202a491cc268708e8b1ea3e88fcaee01350&mpshare=1&scene=1&srcid=0325aMLDTdx0ClZ2498H0bo9&sharer_sharetime=1616677249654&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=f857ab6aec5fa6713ed97cfd77713c7074e1bf7d2e18f16cbc189ef062ae83b733e6bdef7ca157d641e18ee9c58e8caa878b04b5c1d79090ba8563d92ffa6e289d50578e0fcaf2afa4c2051f42996fa6eee1df14082ce73240342bd0ffa483e0a4c66c49d6ce23aa80443f82006665eeec5ee1a65869598a533d343bed2d553e&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+7&version=62090529&lang=en&exportkey=AcpciO1seMhZJaHP5b6ufIc%3D&pass_ticket=R4gA6eQQe7YgMLebrWgsKJMiRaSVZvJloUg0E%2BvBswneey7d4wJxjToFbns98nxT&wx_header=0)
+
 * [科学 60 秒：吸人血的蚊子，也有被吸血的时候](https://www.linkresearcher.com/careers/6b444aa7-dd09-4ae3-ba3f-2a7db1ad018d)
+
 * [科学 60 秒：中年危机究竟来自社会，还是我们的心理？](https://www.linkresearcher.com/careers/8506b5c7-a1b6-41d1-b5f4-3ab06cc9aa35)
+
 * [婴儿时的我们可真聪明](https://mp.weixin.qq.com/s?__biz=MzAwNTA5NTYxOA==&mid=2650984130&idx=1&sn=a5804bd37c1af124b3d85192088b875a&chksm=80d7876fb7a00e79466d7c3adc69b84c411a90b24b6ae9e528160dcc689f94b00daac2e32521&mpshare=1&scene=1&srcid=0331lc6HYactPJxwtUKiGqAh&sharer_sharetime=1617170155589&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=2aa077da30b3beb280b304bebf91a379b6629ba9bacf3b22c4e909347650229e15484f09ce08c92813a3c14bfd7f511fe8b11712d3566076501e07c0329dc5cc19f5bbf2e75fffa037a52b11438c37bb37576c79348598e85c1ad4bf5318670ec82ccab37e0ec98de2865105ff35418681e19049ccbc35fe00fe571dca8387e2&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+7&version=62090529&lang=en&exportkey=ARZbpsIHjZkOjHm3%2BG4Y6Oo%3D&pass_ticket=oWqxqWDCD8OYUK4AxJ3rMfzAApr6n24aMc3NjV%2BbJ78UEaofbRT37TahVobQ%2FEwk&wx_header=0)
+
 * [起底 60 年代 CIA “脑机接口” 实验！把电极植入大脑遥控狗，一只受 2000 次电击后死亡](https://mp.weixin.qq.com/s?__biz=MjM5MTQzNzU2NA==&mid=2651698077&idx=1&sn=66b3d2a77f250fea505861d4f76928f0&chksm=bd4c940e8a3b1d18baca9ab3b6b769950df72c593dc31849b6fe56eaf3b3cf638f521bf4bbaa&mpshare=1&scene=1&srcid=0331mLJvZUbnZjcLaJqtC9nh&sharer_sharetime=1617181802727&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=c4b23c3bf06071337075df0dfb786e4807230178460e188f74f813467ddab3ccde0746f71dc022ec539b01e96627ba0d9752eede9ed7c612d5c77663f5efcf8424b9b809118ab0275554a05bcb82f688411061fae6cdad5960a910558e88e206627034e81b0b66e9f84a8a455a3fe620541ca8a10574b2e92b1033f2791dd731&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+7&version=62090529&lang=en&exportkey=AQFmkdbzSKMyR1e8sOqU3zI%3D&pass_ticket=jWa%2BgbLHluiTlersEim4kKdat03yGHrfxYrQ17pzn4uhvnji8fXKmkF%2Bv3IVRxmh&wx_header=0)
+
 * [为什么越是傻 X 的人，越有一股谜之自信](https://mp.weixin.qq.com/s?__biz=MzU4Mjg2OTI2MA==&mid=2247643280&idx=2&sn=30dac8da1be2ac89b2fd110a94002d65&chksm=fdbd38f3cacab1e5fd928539d116f054339441fc48e944ed2196a316a4672c26530f4a740e32&mpshare=1&scene=1&srcid=0401pTWKwJ09NXTklDE1ndh7&sharer_sharetime=1617254258011&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=8ad0ea50d7c773517cc26d1dafd0b4771fc56ed036a10097a89d52da639ba4daba5b16710f8084ca0ad312abe7707b77542ff633c973a8ca09edc7021e747c291a23dd25d373d2c48bc1f15d327a4430b90be77542f5e6f58575a79aac64cf679bf04070b03b965fed19517f852bf889957ad0aa1aea30cc6c7884c88d2846e0&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+7&version=62090529&lang=en&exportkey=AarxXYV%2FvwclMMPgXPjMpOE%3D&pass_ticket=jWa%2BgbLHluiTlersEim4kKdat03yGHrfxYrQ17pzn4uhvnji8fXKmkF%2Bv3IVRxmh&wx_header=0)
+
 * [头秃有救了？《自然》最新发现：最简单的办法，或能让你重获浓密头发](https://mp.weixin.qq.com/s?__biz=MjM5NDA1Njg2MA==&mid=2652017516&idx=1&sn=244b0e601ce1f39b975e965861cef96f&chksm=bd6bac9f8a1c258963fc6aee798d42c152519e16b8c31a5c8e6af4b8361b538064823887ec35&mpshare=1&scene=1&srcid=0402iZWryrSjzvcquzxKxL6R&sharer_sharetime=1617315197038&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=8ad0ea50d7c7735155024cbb972bf20eba24e2e80c0c1f6036fdb2e6e44491036e1388be637d6f350cdaa6b9f5dc3fc98d1907484afcba5c3a99d60f189d92ff93678f20812915d584ca27872d10472fe13900cc1f4337d348fcaf34bafeddcf334c16479c76c3e2182f52ccf809faaf9dd37dfc6eebd7a481c18f3810e3f239&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+7&version=62090529&lang=en&exportkey=AcZ27doudCiXi1MUsbf2RVU%3D&pass_ticket=jWa%2BgbLHluiTlersEim4kKdat03yGHrfxYrQ17pzn4uhvnji8fXKmkF%2Bv3IVRxmh&wx_header=0)
+
 * [斯坦福再出变态神人！竟用一个数学模型，暴力解开 “掰手指” 的奥秘！看完我跪了......](https://mp.weixin.qq.com/s?__biz=MjM5MDE3OTk2Ng==&mid=2657557118&idx=1&sn=0d84dee70e2a0c8e0cd1f12d16bd7aa3&chksm=bddb0d6f8aac8479860631e489c523b6d4f49cf832114ddf6b121c4d559cf06d20192c1f3b44&mpshare=1&scene=1&srcid=0406tpbCDfx4Pv5bVdxPR6EL&sharer_sharetime=1617661567000&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=054fa246941644a479d919206a2eb58126cf3155218ca42d5e30bf20aed481fd1456b0e13574e46de09cfd152b4ab618cc76621cb5fbc7bdb100d8089e0ac18c0da3e31db842ce01e2ad4ba2a6b48e1653ed2c74ddde6ee3708fcab446ee0d737161d4750f8df9a9238ee91817d022fb66f83990be02aead974b4a4b8f14ef6e&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+7&version=62090529&lang=en&exportkey=AQQh%2FDL5IRnzR69h7eQdy2o%3D&pass_ticket=i1%2F2%2BbY5zuD4jIDVA%2Fx%2F26secuXAcCW%2BTynnyh3LyhcLLs6azx56%2BqjAnLqjKXcS&wx_header=0)
+
 * [导师的要求为啥总是越提越多？最新《自然》封面研究有了解释……](https://www.linkresearcher.com/theses/9a13e761-128e-4942-83e8-9d749ba488a1)
+
 * [科学 60 秒：运动时听到的加油打气，会让你更快力竭](https://www.linkresearcher.com/careers/6c4c0f8c-40dd-4e1e-839a-6abe6ab30177)
+
 * [科学 60 秒：越贵的药，效果真的越好](https://www.linkresearcher.com/careers/ad51c464-3e88-4d6b-9ae7-5de379b76759)
+
 * [面对金钱的诱惑，人们不诚实的方式竟如此之多](https://www.linkresearcher.com/theses/53bc8eca-3051-4e2e-85eb-6e417c0ffc8c)
+
 * [沉迷自己的美貌无法自拔？害，俺也一样！ | 论文频道 | 领研网](https://www.linkresearcher.com/theses/717afec0-73ad-4b3c-ad83-df2843f125d0)
+
 * [走进厨房不知干啥，如何摆脱 “门口效应”？ | 论文频道 | 领研网](https://www.linkresearcher.com/theses/d8be7b87-0154-4539-98af-5df27964a0af)
+
 * [谣言止于高情商者 | 论文频道 | 领研网](https://www.linkresearcher.com/theses/a6090c5b-341f-43b1-abd1-a78841da7f92)
+
 * [91 分真的比 89 分优秀很多吗？ | 论文频道 | 领研网](https://www.linkresearcher.com/theses/ce27155d-e5c9-4f07-a6e8-a5ad60911977)
+
 * [如何判断自己的态度是否 “三分钟热度”？ | 论文频道 | 领研网](https://www.linkresearcher.com/theses/f54fb793-9827-4a00-a74a-3090e52d25e7)
+
 * [你看那猴子“笑”那么开心，它真的高兴吗？](https://mp.weixin.qq.com/s/vZXmpSzCCtvxK5EZNz0Wnw)
+
 * [旧东西总是舍不得扔？你可能得了这种病……](https://mp.weixin.qq.com/s/QMZAVLpufDS-gBeI0xjABg)
+
 * [猫子，视错觉的水太深，你把握不住。](https://mp.weixin.qq.com/s/g0SByP_lxBiSc39o_RJqlw)
+
+* [《 科 学 挠 痒 痒 》](https://mp.weixin.qq.com/s/EH4jwlMmUKZa4eyBnBydOA)
+
 * []()
+
 * []()
 
