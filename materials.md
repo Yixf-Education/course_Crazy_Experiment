@@ -584,3 +584,7 @@
 
 * [终于有人把内卷和囚徒困境讲明白了](https://mp.weixin.qq.com/s/gt4_naqVHJkmF16yEaShbw)
 
+* [画个圈就能捉住一只猫，“画地为牢”为什么管用？](https://mp.weixin.qq.com/s/pRhR06qpdO8VH9jOroWXEg)
+
+* [打个赌：我做完这件事，不到30s你一定会模仿](https://mp.weixin.qq.com/s/r27i8VZGKL26XSmE_dt7dg)
+
