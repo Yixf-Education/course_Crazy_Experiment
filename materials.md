@@ -592,5 +592,5 @@
 
 * [▶ 科学 60 秒：绵羊也能认出艾玛・沃特森 | 1:19 | 生涯频道 | 领研网](https://www.linkresearcher.com/careers/5c346a8d-452e-4573-b819-4acd3d4698ee)
 
-* 
+* [一个手机 APP，就能改变你的性格？ | 论文频道 | 领研网](https://www.linkresearcher.com/theses/2d6ce01f-6c6b-42ae-ab06-d3c160a122d1)
 
