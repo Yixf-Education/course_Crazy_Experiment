@@ -588,3 +588,9 @@
 
 * [打个赌：我做完这件事，不到30s你一定会模仿](https://mp.weixin.qq.com/s/r27i8VZGKL26XSmE_dt7dg)
 
+* [史上最漫长的实验，从半夜寻宝开始](https://mp.weixin.qq.com/s/cP2SDTvVBOjVOTFnuVqVJw)
+
+* [▶ 科学 60 秒：绵羊也能认出艾玛・沃特森 | 1:19 | 生涯频道 | 领研网](https://www.linkresearcher.com/careers/5c346a8d-452e-4573-b819-4acd3d4698ee)
+
+* 
+
