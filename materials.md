@@ -594,3 +594,5 @@
 
 * [一个手机 APP，就能改变你的性格？ | 论文频道 | 领研网](https://www.linkresearcher.com/theses/2d6ce01f-6c6b-42ae-ab06-d3c160a122d1)
 
+* [将一根钢针从眼眶刺入头颅，他活生生摧毁了 6 万人的大脑：史上最残忍的诺奖研究](https://mp.weixin.qq.com/s/sN00J3yO9lyjfl8AZcoygA)
+
