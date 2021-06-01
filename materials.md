@@ -596,3 +596,5 @@
 
 * [将一根钢针从眼眶刺入头颅，他活生生摧毁了 6 万人的大脑：史上最残忍的诺奖研究](https://mp.weixin.qq.com/s/sN00J3yO9lyjfl8AZcoygA)
 
+* [一项随机对照试验证实：不打针，不吃药，8周内年轻3岁不是梦！](https://mp.weixin.qq.com/s/SNHPK-bn0m-8sb0oMtrayw)
+
