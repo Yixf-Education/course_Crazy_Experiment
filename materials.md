@@ -598,3 +598,5 @@
 
 * [一项随机对照试验证实：不打针，不吃药，8周内年轻3岁不是梦！](https://mp.weixin.qq.com/s/SNHPK-bn0m-8sb0oMtrayw)
 
+* [PNAS：男性更易做出极端的选择和决定，要么三分钟热度，要么很长情](https://mp.weixin.qq.com/s/-JhdITbF_Xh8nCQnfNvC1Q)
+
