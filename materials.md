@@ -301,4 +301,5 @@
 * [▶ 科学 60 秒：唱不准的歌，用口哨吹出来会更好听 | 2:19 | 生涯频道 | 领研网](https://www.linkresearcher.com/careers/3f06f58c-6f4c-467b-8660-fe249f64fae9)
 * [送了礼物就想作威作福？ | 论文频道 | 领研网](https://www.linkresearcher.com/theses/2cc4a4ab-80fe-40ff-9e55-3df0a0a2bf00)
 * [▶ 科学 60 秒：猫猫依恋人类，就像婴儿依恋父母一样 | 2:52 | 生涯频道 | 领研网](https://www.linkresearcher.com/careers/b148251a-7587-4e64-b198-94bb66a82948)
+* [“藏头不藏脚”人类幼崽躲猫猫除了好笑，还有你不知道的成长大益处！](https://mp.weixin.qq.com/s/Z-pknKXJVu5Uko-3OEHWDw)
 
