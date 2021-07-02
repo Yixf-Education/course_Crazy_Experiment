@@ -307,5 +307,5 @@
 * [公蚊子首次被发现也爱吸血，不过吸完后结局很惨](https://mp.weixin.qq.com/s/DvpT4-gqCct2bjTohOlgzA)
 * [间歇性禁食减肥没有特效，还容易导致肌肉流失？ | 论文频道 | 领研网](https://www.linkresearcher.com/theses/d80a167e-ae6a-45ab-bdc0-0ec8007241d8)
 * [▶ 科学 60 秒：多玩手机，反而有益心理健康？| 3:02 | 生涯频道 | 领研网](https://www.linkresearcher.com/careers/63ed635f-26d0-4124-9c04-5a0764b0affa)
-* 
+* [苏联睡眠剥夺实验，竟然把人变成怪物？！为了研究睡眠，这些科学家不要命了......](https://mp.weixin.qq.com/s/mK12uMxECUo-ldFOApzNxw)
 
