@@ -309,4 +309,6 @@
 * [▶ 科学 60 秒：多玩手机，反而有益心理健康？| 3:02 | 生涯频道 | 领研网](https://www.linkresearcher.com/careers/63ed635f-26d0-4124-9c04-5a0764b0affa)
 * [苏联睡眠剥夺实验，竟然把人变成怪物？！为了研究睡眠，这些科学家不要命了......](https://mp.weixin.qq.com/s/mK12uMxECUo-ldFOApzNxw)
 * [碰瓷的老人们善良吗？ | 论文频道 | 领研网](https://www.linkresearcher.com/theses/3f33fa90-60fa-4ae8-836e-f5132a085f89)
+* [这个史上著名的实验，竟然第一步就做错了](https://mp.weixin.qq.com/s/tkba04E7fKC3WKY-wIRuUQ)
+* [世界未解之谜：为何傻x不知道自己是傻x？](https://mp.weixin.qq.com/s/qOI81GkVp8SLY6ASHCA39A)
 
