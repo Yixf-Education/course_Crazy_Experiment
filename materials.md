@@ -311,4 +311,5 @@
 * [碰瓷的老人们善良吗？ | 论文频道 | 领研网](https://www.linkresearcher.com/theses/3f33fa90-60fa-4ae8-836e-f5132a085f89)
 * [这个史上著名的实验，竟然第一步就做错了](https://mp.weixin.qq.com/s/tkba04E7fKC3WKY-wIRuUQ)
 * [世界未解之谜：为何傻x不知道自己是傻x？](https://mp.weixin.qq.com/s/qOI81GkVp8SLY6ASHCA39A)
+* [魔术时间，猜猜在哪只手里？](https://mp.weixin.qq.com/s/qAHm_h3ogrT_YcgQ_RRBOw)
 
