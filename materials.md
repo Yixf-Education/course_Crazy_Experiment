@@ -312,4 +312,6 @@
 * [这个史上著名的实验，竟然第一步就做错了](https://mp.weixin.qq.com/s/tkba04E7fKC3WKY-wIRuUQ)
 * [世界未解之谜：为何傻x不知道自己是傻x？](https://mp.weixin.qq.com/s/qOI81GkVp8SLY6ASHCA39A)
 * [魔术时间，猜猜在哪只手里？](https://mp.weixin.qq.com/s/qAHm_h3ogrT_YcgQ_RRBOw)
+* [如何快速学习一门新语言？你需要手写练习 | 论文频道 | 领研网](https://www.linkresearcher.com/theses/8cd9f004-cffd-46ee-838e-11bce358ca74)
+* [知道的越多越难激发学龄前儿童学习的好奇心？ | 论文频道 | 领研网](https://www.linkresearcher.com/theses/9c40174b-d895-49d5-a352-baddd4793517)
 
