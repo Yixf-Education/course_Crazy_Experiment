@@ -314,4 +314,5 @@
 * [魔术时间，猜猜在哪只手里？](https://mp.weixin.qq.com/s/qAHm_h3ogrT_YcgQ_RRBOw)
 * [如何快速学习一门新语言？你需要手写练习 | 论文频道 | 领研网](https://www.linkresearcher.com/theses/8cd9f004-cffd-46ee-838e-11bce358ca74)
 * [知道的越多越难激发学龄前儿童学习的好奇心？ | 论文频道 | 领研网](https://www.linkresearcher.com/theses/9c40174b-d895-49d5-a352-baddd4793517)
+* [NEJM：间歇性禁食对健康、衰老和疾病的影响](https://mp.weixin.qq.com/s/IOc4atUhHHDJIFu7XNcK4Q)
 
