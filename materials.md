@@ -316,4 +316,5 @@
 * [知道的越多越难激发学龄前儿童学习的好奇心？ | 论文频道 | 领研网](https://www.linkresearcher.com/theses/9c40174b-d895-49d5-a352-baddd4793517)
 * [NEJM：间歇性禁食对健康、衰老和疾病的影响](https://mp.weixin.qq.com/s/IOc4atUhHHDJIFu7XNcK4Q)
 * [电击同伴就有糖吃，在诱惑与人性的抉择中你的表现可能和老鼠差不多](https://mp.weixin.qq.com/s/aR-czVlPrpFThrTL8Lo-Yg)
+* [有钱就能为所欲为？！印度悬赏捕杀眼镜蛇，却不料越杀越多......](https://mp.weixin.qq.com/s/xddbkMXHGjRXTrH6q-6f7Q)
 
