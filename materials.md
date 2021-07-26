@@ -318,4 +318,5 @@
 * [电击同伴就有糖吃，在诱惑与人性的抉择中你的表现可能和老鼠差不多](https://mp.weixin.qq.com/s/aR-czVlPrpFThrTL8Lo-Yg)
 * [有钱就能为所欲为？！印度悬赏捕杀眼镜蛇，却不料越杀越多......](https://mp.weixin.qq.com/s/xddbkMXHGjRXTrH6q-6f7Q)
 * [一条狗竟然有两个头？前苏联惊悚“双头狗”实验，地狱版“接头霸王”......](https://mp.weixin.qq.com/s/BYW061aUQev8IWYA6clBow)
+* [1张图就能看穿你的欲望？刷爆朋友圈的心理测试，为什么有点准](https://mp.weixin.qq.com/s/pzneVr5FYOCnIuX28nh5vw)
 
