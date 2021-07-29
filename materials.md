@@ -320,4 +320,5 @@
 * [一条狗竟然有两个头？前苏联惊悚“双头狗”实验，地狱版“接头霸王”......](https://mp.weixin.qq.com/s/BYW061aUQev8IWYA6clBow)
 * [1张图就能看穿你的欲望？刷爆朋友圈的心理测试，为什么有点准](https://mp.weixin.qq.com/s/pzneVr5FYOCnIuX28nh5vw)
 * [拿铜牌比银牌更快乐？数百名奥运奖牌得主的表情说明了一切……](https://mp.weixin.qq.com/s/LpLv__Ma2iI-ux61SJJcMw)
+* [鸟的嗅觉厉害吗？也就比狗强一点，比人强亿点吧](https://mp.weixin.qq.com/s/Ki9DyDWRpnTMVw-JL0lyTg)
 
