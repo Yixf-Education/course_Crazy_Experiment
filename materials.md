@@ -324,4 +324,5 @@
 * [为什么我们总能把不是人的东西看成脸？](https://mp.weixin.qq.com/s/Gf7JklccMET0HYP0EVTYlg)
 * [▶ 科学 60 秒：刑侦剧能在多大程度上影响我们对性犯罪的看法？| 2:03 | 生涯频道 | 领研网](https://www.linkresearcher.com/careers/b3f3be80-2cb8-48bc-9057-52edc25d7f0a)
 * [一场巧合，让“认知理论之父”与心理学相遇](https://mp.weixin.qq.com/s/1w8jWj2ImurhUXLj0jrTfw)
+* [为什么戴上口罩后，帅哥美女变多了？但有1类人除外…](https://mp.weixin.qq.com/s/oxHyB8lTDeubHc-bAAzY7Q)
 
