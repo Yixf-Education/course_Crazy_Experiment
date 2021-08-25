@@ -341,4 +341,5 @@
 * [小孩的谎言很容易拆穿？20年的研究结果将颠覆你的认知](https://mp.weixin.qq.com/s/k9DCmvneAoqLYSjj2JMuOg)
 * [数学这么难，为啥小动物们能学会？](https://mp.weixin.qq.com/s/Yxe1EqCxfeCjdgz1ID07_g)
 * [苏联睡眠剥夺实验，竟然把人变成怪物？！为了研究睡眠，这些科学家不要命了......](https://mp.weixin.qq.com/s/-pV4taNMnj1YvI_8vvDwtQ)
+* [孤独是种病！不仅影响睡眠，还会让你更容易暴饮暴食...](https://mp.weixin.qq.com/s/j5SKj9WD4-59RVNcgIqqgw)
 
