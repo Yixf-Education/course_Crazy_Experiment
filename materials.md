@@ -348,4 +348,7 @@
 * [深圳大学等单位发现，雄性激素高的男性更小气、自私、不够慷慨](https://mp.weixin.qq.com/s/TLGP42oXVIpFhIyzY5Vtxg)
 * [周末补觉真能回血吗？新实验告诉你：基本没用](https://mp.weixin.qq.com/s/M_yvRwNkMEYky52monhc6A)
 * [大象到底有多聪明？](https://mp.weixin.qq.com/s/DeXOL3zlUiUg0TmcedP79g)
+* [你会为了公司昧良心吗？ | 论文频道 | 领研网](https://www.linkresearcher.com/theses/e259ec84-5413-41fa-bdbe-1d80bcbc0209)
+* [精神疲惫、情绪不佳？不妨听听音乐 | 论文频道 | 领研网](https://www.linkresearcher.com/theses/8a8058c5-add8-49d5-99e6-b9670e67060e)
+* [空气污染竟然会影响你的工作效率，进而影响你的收入｜CEQI | 论文频道 | 领研网](https://www.linkresearcher.com/theses/ee5e303f-b4f5-43ee-b0fb-2099b53077b6)
 
