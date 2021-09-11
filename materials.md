@@ -351,4 +351,10 @@
 * [你会为了公司昧良心吗？ | 论文频道 | 领研网](https://www.linkresearcher.com/theses/e259ec84-5413-41fa-bdbe-1d80bcbc0209)
 * [精神疲惫、情绪不佳？不妨听听音乐 | 论文频道 | 领研网](https://www.linkresearcher.com/theses/8a8058c5-add8-49d5-99e6-b9670e67060e)
 * [空气污染竟然会影响你的工作效率，进而影响你的收入｜CEQI | 论文频道 | 领研网](https://www.linkresearcher.com/theses/ee5e303f-b4f5-43ee-b0fb-2099b53077b6)
+* [2021年搞笑诺贝尔奖：喵星人竟然会说十几种语言！一块口香糖就能知晓全球人群的口腔微生态健康！](https://mp.weixin.qq.com/s/3RACyj7iiBD5mwfvqFG5sg)
+* [2021年搞笑诺贝尔奖公布，啪啪啪可以治鼻炎荣获医学奖](https://mp.weixin.qq.com/s/NXJvFUghH1YvyVEo559j9g)
+* [最新！第 31 次搞笑诺奖公布，啪啪啪可以治鼻炎，阅读空气真的存在......](https://mp.weixin.qq.com/s/2o-jiYnrOYp0g36Y9ClnHw)
+* [性行为能治鼻塞，长胡子是为了扛揍……2021搞笑诺奖来了！](https://mp.weixin.qq.com/s/yMqm-pytGrUZUKpuZ5WfGg)
+* [性行为能让鼻子更通气；留着长胡子更抗打？今年的搞笑诺奖它来了！](https://mp.weixin.qq.com/s/hnuAFnS07WCg-FHkk7HITQ)
+* [喵星人怎么和人交流？潜艇里进蟑螂了怎么办？这些无厘头研究获得了今年的搞笑诺贝尔奖……](https://mp.weixin.qq.com/s/nGqxyIM8bTBYgJoCOgr1WA)
 
