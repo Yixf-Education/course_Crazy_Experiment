@@ -357,4 +357,8 @@
 * [性行为能治鼻塞，长胡子是为了扛揍……2021搞笑诺奖来了！](https://mp.weixin.qq.com/s/yMqm-pytGrUZUKpuZ5WfGg)
 * [性行为能让鼻子更通气；留着长胡子更抗打？今年的搞笑诺奖它来了！](https://mp.weixin.qq.com/s/hnuAFnS07WCg-FHkk7HITQ)
 * [喵星人怎么和人交流？潜艇里进蟑螂了怎么办？这些无厘头研究获得了今年的搞笑诺贝尔奖……](https://mp.weixin.qq.com/s/nGqxyIM8bTBYgJoCOgr1WA)
+* [2021 年搞笑诺奖公布！研究显示政客越肥胖，国家越腐败](https://mp.weixin.qq.com/s/jSYDuAQHpX8XiWqMwHhzZQ)
+* [2021“搞笑诺贝尔奖”盘点：啪啪啪可以缓解鼻塞？猫会说十几种话？政客越胖越腐败？留最长的胡子，打最狠的架？](https://mp.weixin.qq.com/s/ezx3pjJ75wk1bPmSjjJ-FA)
+* [2021年搞笑诺贝尔奖公布，猫星人竟会说十几种语言......](https://mp.weixin.qq.com/s/yoWKsh2utOuE42LXcrKo-g)
+* [2021 年搞笑诺奖公布！啪啪啪可以治鼻炎，留胡子是因为怕被打......](https://mp.weixin.qq.com/s/BPfGUeh-dKkwM1n-OkQS1A)
 
