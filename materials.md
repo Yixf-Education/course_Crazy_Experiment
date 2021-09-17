@@ -361,4 +361,5 @@
 * [2021“搞笑诺贝尔奖”盘点：啪啪啪可以缓解鼻塞？猫会说十几种话？政客越胖越腐败？留最长的胡子，打最狠的架？](https://mp.weixin.qq.com/s/ezx3pjJ75wk1bPmSjjJ-FA)
 * [2021年搞笑诺贝尔奖公布，猫星人竟会说十几种语言......](https://mp.weixin.qq.com/s/yoWKsh2utOuE42LXcrKo-g)
 * [2021 年搞笑诺奖公布！啪啪啪可以治鼻炎，留胡子是因为怕被打......](https://mp.weixin.qq.com/s/BPfGUeh-dKkwM1n-OkQS1A)
+* [当心！你的狗可能远比你以为的懂事](https://mp.weixin.qq.com/s/Xcg4QJwPyHygG_LySq03Ag)
 
