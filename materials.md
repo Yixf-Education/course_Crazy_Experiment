@@ -363,4 +363,5 @@
 * [2021 年搞笑诺奖公布！啪啪啪可以治鼻炎，留胡子是因为怕被打......](https://mp.weixin.qq.com/s/BPfGUeh-dKkwM1n-OkQS1A)
 * [当心！你的狗可能远比你以为的懂事](https://mp.weixin.qq.com/s/Xcg4QJwPyHygG_LySq03Ag)
 * [8个正常人在精神病院住了19天，他们后来怎么样了？](https://mp.weixin.qq.com/s/Gk6QlLfnswLfvLAvmWXH6A)
+* [人类看不出这些 “论文” 是 AI 编的，我们刚刚试过了](https://mp.weixin.qq.com/s/RflcKdRGVjpfoKmHYf8gRQ)
 
