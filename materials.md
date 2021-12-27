@@ -365,4 +365,5 @@
 * [8个正常人在精神病院住了19天，他们后来怎么样了？](https://mp.weixin.qq.com/s/Gk6QlLfnswLfvLAvmWXH6A)
 * [人类看不出这些 “论文” 是 AI 编的，我们刚刚试过了](https://mp.weixin.qq.com/s/RflcKdRGVjpfoKmHYf8gRQ)
 * [这也能发论文？2021年都有哪些“无厘头”研究？](https://mp.weixin.qq.com/s/HmDUpCbyatsub_Biz8SehA)
+* [只跑 10 分钟，就能显著改善执行力和情绪 | 论文频道 | 领研网](https://www.linkresearcher.com/theses/5b75b8c0-f7b4-4b62-85a0-915a53b19426)
 
