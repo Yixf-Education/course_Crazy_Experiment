@@ -369,4 +369,5 @@
 * [为什么越立flag越容易打脸？](https://mp.weixin.qq.com/s?__biz=MzIxNzYzODAyNw==&mid=2247512990&idx=1&sn=5e481c704d71fe8e02bf6d907dc85641&chksm=97f4467aa083cf6c7cf996bbf045836385bb532f4b5e0d0c5e599d62837a85f3167ac5238a1c&mpshare=1&scene=1&srcid=012440qWXqo6JzqM7wydDAjg&sharer_sharetime=1643006372502&sharer_shareid=49bb68e4d4ad9f65af077f4e54025da0&key=3a233eaa99d76acf7ec55e2c2de377ec1c1dd2ace06bb42e09055597af268d4dd11717698dd4dba5257e715f8ba4fc7bbab72ac0be9f80607ae3cdbd5dc8b78b7e90e362ea81ec6dde0577eeac9e1267042f43fc5910cc1478c6bf9ce0232a94ee960c95ab2d76eed258ab709777ddb4477dbaf5a8c1e40164dcf506c24f2c50&ascene=1&uin=MjEyMzUzNDk2MQ%3D%3D&devicetype=Windows+7&version=6209007b&lang=en&exportkey=AYy8K37mohEV26GiiY8kNNs%3D&acctmode=0&pass_ticket=L2vwEJ10Lki6CwqUyecebicBPRRhWyXX13RYVzPVPNgAzHgqWcOZZOTlODpobwM4&wx_header=0)
 * [喝水也会醉？酒不醉人人自醉原来是真的啊](https://mp.weixin.qq.com/s/bGl8wzMqCmrtVhBllOUGeQ)
 * [为什么微醺时，看人更有魅力？](https://mp.weixin.qq.com/s/3xH8weqPTiOOeKGWqJ9MKA)
+* [博士仅用 2 周投中了篇论文，戏耍 157 家期刊，被 Science 报道！](https://mp.weixin.qq.com/s/E1aObQTMS1Ofj4B5SbvM0Q)
 
