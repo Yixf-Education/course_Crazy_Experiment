@@ -371,4 +371,5 @@
 * [为什么微醺时，看人更有魅力？](https://mp.weixin.qq.com/s/3xH8weqPTiOOeKGWqJ9MKA)
 * [博士仅用 2 周投中了篇论文，戏耍 157 家期刊，被 Science 报道！](https://mp.weixin.qq.com/s/E1aObQTMS1Ofj4B5SbvM0Q)
 * [这一批诺奖级研究，都跟“啪啪”有关？](https://mp.weixin.qq.com/s/2P-eG4a2iFkIPSGn77QZGg)
+* [吃饱了饭，再去嘿嘿嘿](https://mp.weixin.qq.com/s/ClcKIRCsraNHEjGmK__cyA)
 
