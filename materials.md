@@ -373,4 +373,5 @@
 * [这一批诺奖级研究，都跟“啪啪”有关？](https://mp.weixin.qq.com/s/2P-eG4a2iFkIPSGn77QZGg)
 * [吃饱了饭，再去嘿嘿嘿](https://mp.weixin.qq.com/s/ClcKIRCsraNHEjGmK__cyA)
 * [一个人不吃饭能活多久，饥饿实验不一定能给你答案](https://mp.weixin.qq.com/s/h9gY4jT97KErmenw1CA-6w)
+* [到底谁疯？8名正常人卧底精神病院，掀起精神病学大风暴！](https://mp.weixin.qq.com/s/Z8weFvd4tOk2gPJ5SC51zw)
 
