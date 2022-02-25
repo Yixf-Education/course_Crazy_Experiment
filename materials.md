@@ -375,4 +375,5 @@
 * [一个人不吃饭能活多久，饥饿实验不一定能给你答案](https://mp.weixin.qq.com/s/h9gY4jT97KErmenw1CA-6w)
 * [到底谁疯？8名正常人卧底精神病院，掀起精神病学大风暴！](https://mp.weixin.qq.com/s/Z8weFvd4tOk2gPJ5SC51zw)
 * [压力大的时候，植物也会尖叫，而且超级响](https://mp.weixin.qq.com/s/QsD-sfwFqS9t5ggp3i4HAw)
+* [狗是人类的好朋友，但人类是狗的好朋友吗？](https://mp.weixin.qq.com/s/CuQxKv2yHuxy-WMYpTrtIQ)
 
