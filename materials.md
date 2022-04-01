@@ -376,4 +376,6 @@
 * [到底谁疯？8名正常人卧底精神病院，掀起精神病学大风暴！](https://mp.weixin.qq.com/s/Z8weFvd4tOk2gPJ5SC51zw)
 * [压力大的时候，植物也会尖叫，而且超级响](https://mp.weixin.qq.com/s/QsD-sfwFqS9t5ggp3i4HAw)
 * [狗是人类的好朋友，但人类是狗的好朋友吗？](https://mp.weixin.qq.com/s/CuQxKv2yHuxy-WMYpTrtIQ)
+* [掰手指关节咔咔响，坚持 50 年会得关节炎吗？有科学家自己试过了](https://mp.weixin.qq.com/s/50RQfNwRz0W50QWdmDTW7A)
+* [绞杀猎物的蛇，用力太猛会绞死自己吗？](https://mp.weixin.qq.com/s/VMHFhodggyh3irYT3BfuxQ)
 
