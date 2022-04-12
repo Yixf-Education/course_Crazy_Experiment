@@ -378,4 +378,5 @@
 * [狗是人类的好朋友，但人类是狗的好朋友吗？](https://mp.weixin.qq.com/s/CuQxKv2yHuxy-WMYpTrtIQ)
 * [掰手指关节咔咔响，坚持 50 年会得关节炎吗？有科学家自己试过了](https://mp.weixin.qq.com/s/50RQfNwRz0W50QWdmDTW7A)
 * [绞杀猎物的蛇，用力太猛会绞死自己吗？](https://mp.weixin.qq.com/s/VMHFhodggyh3irYT3BfuxQ)
+* [狗：我虽然不是人，但巴甫洛夫是真的…… 会做实验](https://mp.weixin.qq.com/s/mx_w1f8D15hNneAe5bQzow)
 
