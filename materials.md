@@ -380,4 +380,5 @@
 * [绞杀猎物的蛇，用力太猛会绞死自己吗？](https://mp.weixin.qq.com/s/VMHFhodggyh3irYT3BfuxQ)
 * [狗：我虽然不是人，但巴甫洛夫是真的…… 会做实验](https://mp.weixin.qq.com/s/mx_w1f8D15hNneAe5bQzow)
 * [脚底的哪个部位最怕痒？怎么自己挠就没那么痒了呢？](https://mp.weixin.qq.com/s/xsjv28yNxBB9T3WtNBLfKA)
+* [哈士奇真的傻？动物智力到底该怎么检测？](https://mp.weixin.qq.com/s/FWim1hCnsTZl83OFXYZ4LA)
 
