@@ -381,4 +381,5 @@
 * [狗：我虽然不是人，但巴甫洛夫是真的…… 会做实验](https://mp.weixin.qq.com/s/mx_w1f8D15hNneAe5bQzow)
 * [脚底的哪个部位最怕痒？怎么自己挠就没那么痒了呢？](https://mp.weixin.qq.com/s/xsjv28yNxBB9T3WtNBLfKA)
 * [哈士奇真的傻？动物智力到底该怎么检测？](https://mp.weixin.qq.com/s/FWim1hCnsTZl83OFXYZ4LA)
+* [PNAS | 男人的存在，会让女人老得更快？研究发现：与雄鼠一起生活，雌鼠连寿命都会变短](https://mp.weixin.qq.com/s/OwFrAHfPMvi2HoHOwvnkgw)
 
