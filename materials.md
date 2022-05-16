@@ -383,4 +383,5 @@
 * [哈士奇真的傻？动物智力到底该怎么检测？](https://mp.weixin.qq.com/s/FWim1hCnsTZl83OFXYZ4LA)
 * [PNAS | 男人的存在，会让女人老得更快？研究发现：与雄鼠一起生活，雌鼠连寿命都会变短](https://mp.weixin.qq.com/s/OwFrAHfPMvi2HoHOwvnkgw)
 * [史上唯一的饥荒实验，挨饿的被试者揭露节食减肥的残酷真相](https://mp.weixin.qq.com/s/UdPQozX0xr5UznXXlMcY5A)
+* [蛇.. 蛇！你为什么不敢点开有蛇的图片](https://mp.weixin.qq.com/s/GWmKOJZ2byKXZMa4lb8Apw)
 
