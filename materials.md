@@ -385,5 +385,5 @@
 * [史上唯一的饥荒实验，挨饿的被试者揭露节食减肥的残酷真相](https://mp.weixin.qq.com/s/UdPQozX0xr5UznXXlMcY5A)
 * [蛇.. 蛇！你为什么不敢点开有蛇的图片](https://mp.weixin.qq.com/s/GWmKOJZ2byKXZMa4lb8Apw)
 * [夹心饼干里居然藏了这么多流变学原理，你真的会 “扭一扭” 奥利奥吗？](https://mp.weixin.qq.com/s/DT-dEiqshmxPhRHAWrqXbA)
-* 
+* [这位诺奖得主不简单，做过伞兵，喜欢科幻和中国功夫 | 约书亚・安格里斯特](https://mp.weixin.qq.com/s/Pyev5Gs4pQSBG86eVnFz4A)
 
