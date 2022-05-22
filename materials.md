@@ -386,4 +386,5 @@
 * [蛇.. 蛇！你为什么不敢点开有蛇的图片](https://mp.weixin.qq.com/s/GWmKOJZ2byKXZMa4lb8Apw)
 * [夹心饼干里居然藏了这么多流变学原理，你真的会 “扭一扭” 奥利奥吗？](https://mp.weixin.qq.com/s/DT-dEiqshmxPhRHAWrqXbA)
 * [这位诺奖得主不简单，做过伞兵，喜欢科幻和中国功夫 | 约书亚・安格里斯特](https://mp.weixin.qq.com/s/Pyev5Gs4pQSBG86eVnFz4A)
+* [如何培养出一只迷信的鸽子？简单包学会！](https://mp.weixin.qq.com/s/4qEkOXxMFWzBZnNnMU8P9g)
 
