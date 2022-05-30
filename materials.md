@@ -388,4 +388,6 @@
 * [这位诺奖得主不简单，做过伞兵，喜欢科幻和中国功夫 | 约书亚・安格里斯特](https://mp.weixin.qq.com/s/Pyev5Gs4pQSBG86eVnFz4A)
 * [如何培养出一只迷信的鸽子？简单包学会！](https://mp.weixin.qq.com/s/4qEkOXxMFWzBZnNnMU8P9g)
 * [多和对象抱抱可减压，或对女性更实用](https://mp.weixin.qq.com/s/lKh4gvtnJz1VXK9JqOhvjQ)
+* [如何杀死 “地表最强生物” 水熊虫？](https://mp.weixin.qq.com/s/A7_7YtpuFVFXRdzVZskoOQ)
+* [吸一次英年早逝？素食先生公蚊子为什么不吸血](https://mp.weixin.qq.com/s/xxHvQCR1Hp7n1hygfqaaHw)
 
