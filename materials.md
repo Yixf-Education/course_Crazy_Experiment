@@ -390,4 +390,5 @@
 * [多和对象抱抱可减压，或对女性更实用](https://mp.weixin.qq.com/s/lKh4gvtnJz1VXK9JqOhvjQ)
 * [如何杀死 “地表最强生物” 水熊虫？](https://mp.weixin.qq.com/s/A7_7YtpuFVFXRdzVZskoOQ)
 * [吸一次英年早逝？素食先生公蚊子为什么不吸血](https://mp.weixin.qq.com/s/xxHvQCR1Hp7n1hygfqaaHw)
+* [交配比生育对寿命影响更大？PNAS：和 “精力旺盛” 却不育的雄鼠在一起，雌鼠更短命](https://mp.weixin.qq.com/s/pgi726TV8XWIeAFMuvgC5Q)
 
