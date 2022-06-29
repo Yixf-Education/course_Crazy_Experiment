@@ -391,4 +391,7 @@
 * [如何杀死 “地表最强生物” 水熊虫？](https://mp.weixin.qq.com/s/A7_7YtpuFVFXRdzVZskoOQ)
 * [吸一次英年早逝？素食先生公蚊子为什么不吸血](https://mp.weixin.qq.com/s/xxHvQCR1Hp7n1hygfqaaHw)
 * [交配比生育对寿命影响更大？PNAS：和 “精力旺盛” 却不育的雄鼠在一起，雌鼠更短命](https://mp.weixin.qq.com/s/pgi726TV8XWIeAFMuvgC5Q)
+* [Cell 子刊：社会隔离会影响大脑基因表达，破坏大脑发育](https://mp.weixin.qq.com/s/w5Ff3fxyte-HZ5b4BlUg_g)
+* [现实中的鱿鱼游戏实验：小学生变得邪恶，但部分真相却被研究者掩盖](https://mp.weixin.qq.com/s/DwsHDlw3IVnDsHndebFByA)
+* [为什么每个人的尿尿时长，都 TM 是 21 秒？！](https://mp.weixin.qq.com/s/DQ4ln9-Z6uUhv4pyuyVMTA)
 
