@@ -395,4 +395,5 @@
 * [现实中的鱿鱼游戏实验：小学生变得邪恶，但部分真相却被研究者掩盖](https://mp.weixin.qq.com/s/DwsHDlw3IVnDsHndebFByA)
 * [为什么每个人的尿尿时长，都 TM 是 21 秒？！](https://mp.weixin.qq.com/s/DQ4ln9-Z6uUhv4pyuyVMTA)
 * [五花八门视错觉，研究它们有啥用？](https://mp.weixin.qq.com/s/swcXoNnJMYbZ1Mw1bdFPNA)
+* [为了治疗瘾君子，医生让他们玩《俄罗斯方块》！](https://mp.weixin.qq.com/s/afip2NDFEcFzytYidjFzVw)
 
