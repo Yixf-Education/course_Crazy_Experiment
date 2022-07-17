@@ -396,4 +396,5 @@
 * [为什么每个人的尿尿时长，都 TM 是 21 秒？！](https://mp.weixin.qq.com/s/DQ4ln9-Z6uUhv4pyuyVMTA)
 * [五花八门视错觉，研究它们有啥用？](https://mp.weixin.qq.com/s/swcXoNnJMYbZ1Mw1bdFPNA)
 * [为了治疗瘾君子，医生让他们玩《俄罗斯方块》！](https://mp.weixin.qq.com/s/afip2NDFEcFzytYidjFzVw)
+* [“门口效应”：为什么我出门就忘事？！](https://mp.weixin.qq.com/s/2IRaGrGC8iYlWDF8ohLNGw)
 
