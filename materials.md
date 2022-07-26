@@ -397,4 +397,5 @@
 * [五花八门视错觉，研究它们有啥用？](https://mp.weixin.qq.com/s/swcXoNnJMYbZ1Mw1bdFPNA)
 * [为了治疗瘾君子，医生让他们玩《俄罗斯方块》！](https://mp.weixin.qq.com/s/afip2NDFEcFzytYidjFzVw)
 * [“门口效应”：为什么我出门就忘事？！](https://mp.weixin.qq.com/s/2IRaGrGC8iYlWDF8ohLNGw)
+* [蜥蜴逃跑为什么这么好笑啊？看起来就像是会轻功](https://mp.weixin.qq.com/s/QRMZ3XcLiv7XFfws28cjGw)
 
