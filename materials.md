@@ -398,4 +398,6 @@
 * [为了治疗瘾君子，医生让他们玩《俄罗斯方块》！](https://mp.weixin.qq.com/s/afip2NDFEcFzytYidjFzVw)
 * [“门口效应”：为什么我出门就忘事？！](https://mp.weixin.qq.com/s/2IRaGrGC8iYlWDF8ohLNGw)
 * [蜥蜴逃跑为什么这么好笑啊？看起来就像是会轻功](https://mp.weixin.qq.com/s/QRMZ3XcLiv7XFfws28cjGw)
+* [与狗狗团聚，为何它们也会落泪？](https://mp.weixin.qq.com/s/ZrYbpKxTIHKDUZq73lMoQg)
+* [打哈欠会传染，人和动物都无法幸免，这是为了让脑子冷静一下](https://mp.weixin.qq.com/s/xlSLKpAfQDD3FiyzFTOTEQ)
 
