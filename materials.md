@@ -400,4 +400,6 @@
 * [蜥蜴逃跑为什么这么好笑啊？看起来就像是会轻功](https://mp.weixin.qq.com/s/QRMZ3XcLiv7XFfws28cjGw)
 * [与狗狗团聚，为何它们也会落泪？](https://mp.weixin.qq.com/s/ZrYbpKxTIHKDUZq73lMoQg)
 * [打哈欠会传染，人和动物都无法幸免，这是为了让脑子冷静一下](https://mp.weixin.qq.com/s/xlSLKpAfQDD3FiyzFTOTEQ)
+* [今年的搞笑诺贝尔奖开奖了！这些研究也太奇葩了吧！](https://mp.weixin.qq.com/s/Th9u3N-kdUl_jQVeTJPRyA)
+* [最新！ 搞笑诺奖开奖！今年有两支中国团队，心动的信号有实锤，玛雅人也灌肠......](https://mp.weixin.qq.com/s/EbvH32Is1dadoVwGuik4zQ)
 
