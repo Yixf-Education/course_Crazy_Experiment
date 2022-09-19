@@ -402,4 +402,5 @@
 * [打哈欠会传染，人和动物都无法幸免，这是为了让脑子冷静一下](https://mp.weixin.qq.com/s/xlSLKpAfQDD3FiyzFTOTEQ)
 * [今年的搞笑诺贝尔奖开奖了！这些研究也太奇葩了吧！](https://mp.weixin.qq.com/s/Th9u3N-kdUl_jQVeTJPRyA)
 * [最新！ 搞笑诺奖开奖！今年有两支中国团队，心动的信号有实锤，玛雅人也灌肠......](https://mp.weixin.qq.com/s/EbvH32Is1dadoVwGuik4zQ)
+* [无名之辈的出路在哪？Science：论文署名改为诺奖得主，接收率飙升 50%！](https://mp.weixin.qq.com/s/POo-sOS0ISuEmNyv4wNhPA)
 
