@@ -408,4 +408,6 @@
 * [为了一项科学实验，他们把双胞胎残忍分开](https://mp.weixin.qq.com/s/urIU8syqoncVax4oFwul3A)
 * [热水和冷水一起放进冰箱，为什么热水能先结冰？](https://mp.weixin.qq.com/s/ixmpdCNZQBZi_tgbm-mXtg)
 * [历经 1935960 小时，我们破解了自行车平衡的奥秘](https://mp.weixin.qq.com/s/xmxmgowToVzAkupg8ePdcg)
+* [权威学者的论文看起来更有道理？](https://mp.weixin.qq.com/s/nTLxgDowuNHtnn2j9mqJUw)
+* [为了偷吃垃圾，一只鹦鹉能耍多少 “心眼”](https://mp.weixin.qq.com/s/qNiktXTshLDdIPNzgS-Mmg)
 
