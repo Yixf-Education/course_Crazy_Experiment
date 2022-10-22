@@ -404,4 +404,5 @@
 * [最新！ 搞笑诺奖开奖！今年有两支中国团队，心动的信号有实锤，玛雅人也灌肠......](https://mp.weixin.qq.com/s/EbvH32Is1dadoVwGuik4zQ)
 * [无名之辈的出路在哪？Science：论文署名改为诺奖得主，接收率飙升 50%！](https://mp.weixin.qq.com/s/POo-sOS0ISuEmNyv4wNhPA)
 * [▶ 科学 60 秒：情侣吵架的终极解决方案 | 1:40 | 生涯频道 | 领研网](https://www.linkresearcher.com/careers/afdb130e-d7f0-458c-87e9-336125adf5a7)
+* [为什么别人挠自己会痒，而自己挠就不会？最新研究教你如何 “不怕痒”](https://mp.weixin.qq.com/s/t9b68XCRBOwLUdeM4wJeOg)
 
