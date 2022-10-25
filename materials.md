@@ -410,4 +410,7 @@
 * [历经 1935960 小时，我们破解了自行车平衡的奥秘](https://mp.weixin.qq.com/s/xmxmgowToVzAkupg8ePdcg)
 * [权威学者的论文看起来更有道理？](https://mp.weixin.qq.com/s/nTLxgDowuNHtnn2j9mqJUw)
 * [为了偷吃垃圾，一只鹦鹉能耍多少 “心眼”](https://mp.weixin.qq.com/s/qNiktXTshLDdIPNzgS-Mmg)
+* [远程学习下的统计焦虑与学术不诚实 | IJEI](https://mp.weixin.qq.com/s/DfbIM4qsb81XCRzugvNZNg)
+* [胃部开洞 58 年，一个普通人的痛苦如何成就消化系统生理学？](https://mp.weixin.qq.com/s/9u05cj-0LWMZnqgpizsnkg)
+* [一举两得！这类游戏不仅提升记忆力，预防 “痴呆”，还能治 “脸盲”](https://mp.weixin.qq.com/s/JBmneI1rVczi6y7QETEpLQ)
 
