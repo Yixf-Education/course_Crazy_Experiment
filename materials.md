@@ -414,4 +414,6 @@
 * [胃部开洞 58 年，一个普通人的痛苦如何成就消化系统生理学？](https://mp.weixin.qq.com/s/9u05cj-0LWMZnqgpizsnkg)
 * [一举两得！这类游戏不仅提升记忆力，预防 “痴呆”，还能治 “脸盲”](https://mp.weixin.qq.com/s/JBmneI1rVczi6y7QETEpLQ)
 * [记忆力好的大脑，和你的有什么不同？](https://mp.weixin.qq.com/s/XChC-ifunhGDOpb-k20u9A)
+* [为什么有些人老迟到？其实他们是故意的……](https://mp.weixin.qq.com/s/aAKkbYKD-d2lVb6VUtSA7A)
+* [比宫斗戏还刺激！动物们为了争宠，究竟能做到哪一步？](https://mp.weixin.qq.com/s/UrwmRzB6hAZf7fmDPHkBEQ)
 
