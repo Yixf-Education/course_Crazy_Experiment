@@ -422,4 +422,5 @@
 * [为什么你不记得出生时的事情？](https://mp.weixin.qq.com/s/DPOpAw8ojb6ECxC9MSNCig)
 * [明明同样的寒冷天气，为什么他能穿短袖短裤我却要穿羽绒服外加三层秋裤啊？](https://mp.weixin.qq.com/s/zatgBziPKtmBuAuxKSRtSA)
 * [超过 25 亿元彩票无人认领，心理学家这样解释......](https://mp.weixin.qq.com/s/GvkMaQi1RCJ-UkzMpxziWQ)
+* [摸鱼，是为了更好地工作 —— 科学家说的](https://mp.weixin.qq.com/s/C_noMxQCftfE7X5hKRsNwQ)
 
