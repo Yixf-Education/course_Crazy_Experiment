@@ -424,4 +424,5 @@
 * [超过 25 亿元彩票无人认领，心理学家这样解释......](https://mp.weixin.qq.com/s/GvkMaQi1RCJ-UkzMpxziWQ)
 * [摸鱼，是为了更好地工作 —— 科学家说的](https://mp.weixin.qq.com/s/C_noMxQCftfE7X5hKRsNwQ)
 * [去鬼屋，为什么一定要带个朋友](https://mp.weixin.qq.com/s/ip6R5mJWjA3R7THYX9Camw)
+* [电梯惊魂：当你在电梯里偶遇领导](https://mp.weixin.qq.com/s/FsUd6s_jbI86Xtcp-okQEg)
 
