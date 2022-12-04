@@ -425,4 +425,7 @@
 * [摸鱼，是为了更好地工作 —— 科学家说的](https://mp.weixin.qq.com/s/C_noMxQCftfE7X5hKRsNwQ)
 * [去鬼屋，为什么一定要带个朋友](https://mp.weixin.qq.com/s/ip6R5mJWjA3R7THYX9Camw)
 * [电梯惊魂：当你在电梯里偶遇领导](https://mp.weixin.qq.com/s/FsUd6s_jbI86Xtcp-okQEg)
+* [“它” 被很多人称为 “衰老加速器”！你吃的每一口食物，都在影响 “它” | 论文频道 | 领研网](https://www.linkresearcher.com/theses/e99bdfd9-996e-474a-9d91-fe8dbaca98d1)
+* [推翻 “每天 8 杯水”！《科学》最新研究找到真正的喝水公式 | 论文频道 | 领研网](https://www.linkresearcher.com/theses/eba1fd9f-cf2b-4029-a432-f5f112734ffa)
+* [PNAS：面对相同数据，不同研究者的结论差异巨大 | 论文频道 | 领研网](https://www.linkresearcher.com/theses/572cc339-f5e5-4d91-b800-b4a735157b88)
 
