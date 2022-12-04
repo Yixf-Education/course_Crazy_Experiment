@@ -429,5 +429,6 @@
 * [推翻 “每天 8 杯水”！《科学》最新研究找到真正的喝水公式 | 论文频道 | 领研网](https://www.linkresearcher.com/theses/eba1fd9f-cf2b-4029-a432-f5f112734ffa)
 * [PNAS：面对相同数据，不同研究者的结论差异巨大 | 论文频道 | 领研网](https://www.linkresearcher.com/theses/572cc339-f5e5-4d91-b800-b4a735157b88)
 * [为什么有的便便会漂在水面上？这个问题不仅你想知道](https://mp.weixin.qq.com/s/W7-hQV_bpnCLmhqPVrU7Zg)
-* 
+* [怎么尿才不会溅到自己身上？物理学家给你答案](https://mp.weixin.qq.com/s/oa5GPfBZUmI5kAHVXbRw5A)
+* [情歌心理学：你最爱的歌词反映了你的恋爱模式](https://mp.weixin.qq.com/s/Y0gkfaqjcTZpP5SMrm-wnA)
 
