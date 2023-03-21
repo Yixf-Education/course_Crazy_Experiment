@@ -433,4 +433,6 @@
 * [情歌心理学：你最爱的歌词反映了你的恋爱模式](https://mp.weixin.qq.com/s/Y0gkfaqjcTZpP5SMrm-wnA)
 * [食物和性，你的选择是？](https://mp.weixin.qq.com/s/-DdRofbE5w5VlH-2XTlV9Q)
 * [7 个至今没有结论的思想实验，你怎么看？](https://mp.weixin.qq.com/s/oPltiLjNLuhb2rilDXe0qQ)
+* [被你拍死的时候，蟑螂也会害怕吗](https://mp.weixin.qq.com/s/noKqmaVi0y6kFeHmAM05gA)
+* [修狗猫咪真的会爱上人类吗？这是科学目前能给出的全部答案……](https://mp.weixin.qq.com/s/AlU-jEv7WYk6sjJyIHgbrw)
 
