@@ -437,4 +437,6 @@
 * [修狗猫咪真的会爱上人类吗？这是科学目前能给出的全部答案……](https://mp.weixin.qq.com/s/AlU-jEv7WYk6sjJyIHgbrw)
 * [黑犀牛坐飞机，为什么要四脚朝天、倒吊着？躺平不行吗？](https://mp.weixin.qq.com/s/bSuaIpLxyyBh3Z3fpEbJBg)
 * [你睡觉时是什么表情？原来每个人都是脾气暴躁的 “皱眉脸”！](https://mp.weixin.qq.com/s/uWBpZS1PwlvcITSErecVKg)
+* [间歇性禁食 “跌落神坛”？Cell 子刊重磅：禁食时间越长，抗感染能力大幅下降！](https://mp.weixin.qq.com/s/2Oa3J8Mq0NXJQw51AfSGdA)
+* [吃巧克力为什么能纵享丝滑？科学家发现了你没法拒绝巧克力的原因](https://mp.weixin.qq.com/s/b3VHv1hFcZkIanJ8Pg4vYg)
 
