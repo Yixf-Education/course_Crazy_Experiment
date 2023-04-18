@@ -439,4 +439,5 @@
 * [你睡觉时是什么表情？原来每个人都是脾气暴躁的 “皱眉脸”！](https://mp.weixin.qq.com/s/uWBpZS1PwlvcITSErecVKg)
 * [间歇性禁食 “跌落神坛”？Cell 子刊重磅：禁食时间越长，抗感染能力大幅下降！](https://mp.weixin.qq.com/s/2Oa3J8Mq0NXJQw51AfSGdA)
 * [吃巧克力为什么能纵享丝滑？科学家发现了你没法拒绝巧克力的原因](https://mp.weixin.qq.com/s/b3VHv1hFcZkIanJ8Pg4vYg)
+* [打开微信却忘记要干嘛、出门就忘事...... 经常发生 “记忆断片” 是痴呆前兆吗？](https://mp.weixin.qq.com/s/ft7oOmx8eK-YqYfiCkmOgQ)
 
