@@ -443,4 +443,5 @@
 * [你从来没有尝过，食物真正的味道](https://mp.weixin.qq.com/s/U9VvDPkSMRIUvqRbw6Y0Bg)
 * [专家建议 8 小时工作制中须包含 3 小时摸鱼时间 (doge.jpg)](https://mp.weixin.qq.com/s/QkIQHLNMQlzewReNAgdixg)
 * [那些听着歌、在星巴克里办公的人，真的有在认真工作吗？科学家说......](https://mp.weixin.qq.com/s/Pc0u07JM5gagv7o1O06Xkg)
+* [野外遇到狮子怎么办？科学家教你在屁股上画眼睛！这是什么原理？](https://mp.weixin.qq.com/s/hcUtGPmAml4JlKLuu3I-bA)
 
