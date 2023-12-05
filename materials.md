@@ -450,4 +450,5 @@
 * [你一天说多少谎话？结果出乎意料](https://mp.weixin.qq.com/s/Bo_xEi7ta0EW5Mf9Yyx0nQ)
 * [为什么猫掉落后总能四爪着地呢？物理学家可以解释这件事](https://mp.weixin.qq.com/s/HVdhw-4GsTdhtBiW011XiQ)
 * [为什么女生月经会逐渐同步？](https://mp.weixin.qq.com/s/WY5yez_MPH3RRQLUtTxRxw)
+* [有人想用镜子做超级武器，烧毁一座城市？前提是先坐着镜子飞到太空……](https://mp.weixin.qq.com/s/7yGIBcr5xqfiuCyVsbicjg)
 
