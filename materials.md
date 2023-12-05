@@ -452,4 +452,5 @@
 * [为什么女生月经会逐渐同步？](https://mp.weixin.qq.com/s/WY5yez_MPH3RRQLUtTxRxw)
 * [有人想用镜子做超级武器，烧毁一座城市？前提是先坐着镜子飞到太空……](https://mp.weixin.qq.com/s/7yGIBcr5xqfiuCyVsbicjg)
 * [历时 8 年，他证明了老鼠有类人的想象力](https://mp.weixin.qq.com/s/b206BsHCBz5ibAYdv6Y7hw)
+* [美国神秘死亡谷，石头竟然会走路？背后的奇怪力量困扰科学家一百年](https://mp.weixin.qq.com/s/h3AgtkrxFsvDywKA-wNdEg)
 
