@@ -454,4 +454,5 @@
 * [历时 8 年，他证明了老鼠有类人的想象力](https://mp.weixin.qq.com/s/b206BsHCBz5ibAYdv6Y7hw)
 * [美国神秘死亡谷，石头竟然会走路？背后的奇怪力量困扰科学家一百年](https://mp.weixin.qq.com/s/h3AgtkrxFsvDywKA-wNdEg)
 * [外星人一直没来，他们却更相信了！](https://mp.weixin.qq.com/s/NgRNIHkPDDbHF58BposaMQ)
+* [人能听懂鸡的心情、山羊会向人求助，也许我们没那么与众不同！](https://mp.weixin.qq.com/s/D_L__qEjaw5nLDhYS_BDPQ)
 
