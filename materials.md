@@ -456,4 +456,6 @@
 * [外星人一直没来，他们却更相信了！](https://mp.weixin.qq.com/s/NgRNIHkPDDbHF58BposaMQ)
 * [人能听懂鸡的心情、山羊会向人求助，也许我们没那么与众不同！](https://mp.weixin.qq.com/s/D_L__qEjaw5nLDhYS_BDPQ)
 * [猪能读懂你的心情！你心情不好时，猪就会狠狠上个厕所？](https://mp.weixin.qq.com/s/cBBdZNht9qUF2zEnpxaUqw)
+* [蚂蚁洞穴有多大？人们往蚂蚁洞里灌水泥，结果灌了 10 吨还没灌满……](https://mp.weixin.qq.com/s/jJ9nIihHDNC5763j1hiusA)
+* [被关进精神病院，如何证明自己是正常人？](https://mp.weixin.qq.com/s/4STU6Xt6Y9Th_ho8FUrUtA)
 
