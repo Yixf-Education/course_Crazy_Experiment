@@ -459,4 +459,7 @@
 * [蚂蚁洞穴有多大？人们往蚂蚁洞里灌水泥，结果灌了 10 吨还没灌满……](https://mp.weixin.qq.com/s/jJ9nIihHDNC5763j1hiusA)
 * [被关进精神病院，如何证明自己是正常人？](https://mp.weixin.qq.com/s/4STU6Xt6Y9Th_ho8FUrUtA)
 * [人如果一直不睡觉，几天后会死？](https://mp.weixin.qq.com/s/fy5ZY4GLhsbVcVJnaXRgLw)
+* [盖上马桶冲水，也不能防止病毒传播](https://mp.weixin.qq.com/s/mYq1k5_PTSsggb3uSWJbxQ)
+* [你眼中的世界和别人的一样吗？](https://mp.weixin.qq.com/s/RUCTWFvMrrhynf_cLPTQNg)
+* [开车时不可以看手机，但可以花更多的时间看车内的触摸屏？](https://mp.weixin.qq.com/s/8TAadxW99qm_oIM0fUYIEA)
 
