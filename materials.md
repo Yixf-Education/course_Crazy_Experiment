@@ -465,4 +465,5 @@
 * [有人发现喜鹊喜欢攻击秃头！研究者是八岁小女孩，却震撼了科学家](https://mp.weixin.qq.com/s/Yn4tcSNTWBZOZEAULlIs5A)
 * [猫猫总能四脚着地？快回家测试一下！](https://mp.weixin.qq.com/s/wVhfZkAKeqbe2cl8WHvhpw)
 * [他踩了 4 万次毒蛇，终于知道了蛇什么时候会咬人](https://mp.weixin.qq.com/s/ngaHU5KBsP48poZRs1rfFA)
+* [这所大学用抽奖来分配经费，结果……](https://mp.weixin.qq.com/s/6Dr_U2-Sp9mH_K8FAMXvIw)
 
