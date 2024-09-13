@@ -468,4 +468,5 @@
 * [这所大学用抽奖来分配经费，结果……](https://mp.weixin.qq.com/s/6Dr_U2-Sp9mH_K8FAMXvIw)
 * [猴子能当歌手大众评审吗？科学家：猴子只爱听猴子唱歌！](https://mp.weixin.qq.com/s/5PmAsb0KdOMnkgD9B0oUjQ)
 * [什么样的纸最容易划破手指？科学家试了试，结果出乎意料](https://mp.weixin.qq.com/s/uNbZuQy2ZCNlK0zQicscGg)
+* [这种鱼死后还能游动，甚至能逆流而上，这么恐怖的故事竟让物理学家狂喜](https://mp.weixin.qq.com/s/6N-exDHOzLXT-hMJ4uKG-g)
 
