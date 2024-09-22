@@ -469,4 +469,6 @@
 * [猴子能当歌手大众评审吗？科学家：猴子只爱听猴子唱歌！](https://mp.weixin.qq.com/s/5PmAsb0KdOMnkgD9B0oUjQ)
 * [什么样的纸最容易划破手指？科学家试了试，结果出乎意料](https://mp.weixin.qq.com/s/uNbZuQy2ZCNlK0zQicscGg)
 * [这种鱼死后还能游动，甚至能逆流而上，这么恐怖的故事竟让物理学家狂喜](https://mp.weixin.qq.com/s/6N-exDHOzLXT-hMJ4uKG-g)
+* [鸽子开导弹，死鱼会游泳，老鼠用皮燕子呼吸…… 今年的搞笑诺奖来了](https://mp.weixin.qq.com/s/o5vkaACk7lMKPnt9QQ52jA)
+* [真狗把主人摸过的毛绒狗撕烂撕碎！马也嫉妒到崩溃…… 怪东西开始入侵 “宠物” 市场？](https://mp.weixin.qq.com/s/kL6tSZ_wjtfz0uyvwSqjVg)
 
