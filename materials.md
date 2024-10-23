@@ -473,4 +473,5 @@
 * [真狗把主人摸过的毛绒狗撕烂撕碎！马也嫉妒到崩溃…… 怪东西开始入侵 “宠物” 市场？](https://mp.weixin.qq.com/s/kL6tSZ_wjtfz0uyvwSqjVg)
 * [你的名字居然能决定你的长相？原来 “人如其名” 是真的](https://mp.weixin.qq.com/s/fyunBM5EcWiZ3PLRgfpzbg)
 * [哈佛医学生一个月吃 720 个鸡蛋，这是他身体发生的变化……](https://mp.weixin.qq.com/s/aHrLAYqzsM4p3vG-5vbeUw)
+* [斯坦福再出变态神人！竟用一个数学模型，暴力解开 “掰手指” 的奥秘！看完我跪了......](https://mp.weixin.qq.com/s/HJGkdWTGsl9lInfVopjeOA)
 
