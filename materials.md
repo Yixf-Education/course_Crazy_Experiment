@@ -475,4 +475,5 @@
 * [哈佛医学生一个月吃 720 个鸡蛋，这是他身体发生的变化……](https://mp.weixin.qq.com/s/aHrLAYqzsM4p3vG-5vbeUw)
 * [斯坦福再出变态神人！竟用一个数学模型，暴力解开 “掰手指” 的奥秘！看完我跪了......](https://mp.weixin.qq.com/s/HJGkdWTGsl9lInfVopjeOA)]
 * [母鸡居然会脸红！科学家举办了一场母鸡真人秀，人们发现母鸡脸红居然是因为……](https://mp.weixin.qq.com/s/Bxvc1Ihot0Bv03Il0DHRuA)
+* [学车后，老鼠爱上开车，整个鼠都更放松了！科学家：向老鼠学习](https://mp.weixin.qq.com/s/--kjZmqN9DS7gMKNZXSDXw)
 
