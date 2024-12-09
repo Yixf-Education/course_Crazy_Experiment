@@ -478,4 +478,5 @@
 * [学车后，老鼠爱上开车，整个鼠都更放松了！科学家：向老鼠学习](https://mp.weixin.qq.com/s/--kjZmqN9DS7gMKNZXSDXw)
 * [为什么初恋最难忘？我们对第一个出场的人印象更好？最新研究：人的「出场顺序」很重要，人们对后来遇到的个体的描述会变得负面](https://mp.weixin.qq.com/s/VdtVx29Al76hVEoSI7w5_g)
 * [4 个人在地球上，却假装在火星生活了一年？没苦硬吃的生活还必须与世隔绝……](https://mp.weixin.qq.com/s/2xpyQj_hbqw7J4kIE1g6gA)
+* [拿自己做实验的科学家们：注射病毒！盲试疫苗！猛喝细菌！](https://mp.weixin.qq.com/s/gEt9tPR-hXFbIja9GARs9A)
 
