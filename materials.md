@@ -480,4 +480,5 @@
 * [4 个人在地球上，却假装在火星生活了一年？没苦硬吃的生活还必须与世隔绝……](https://mp.weixin.qq.com/s/2xpyQj_hbqw7J4kIE1g6gA)
 * [拿自己做实验的科学家们：注射病毒！盲试疫苗！猛喝细菌！](https://mp.weixin.qq.com/s/gEt9tPR-hXFbIja9GARs9A)
 * [一天之内用自己的身体喂 3000 只蚊子！2 天吃 200 斤小龙虾！6 年改 329 稿！网友：这是科研还是吉尼斯啊？](https://mp.weixin.qq.com/s/osljE-0Ye6UQetMeUu93bw)
+* [看部电影就发了顶刊 BMJ！研究发现：蜘蛛侠睡眠不足，绿巨人有心脏病风险，黑寡妇很难长寿](https://mp.weixin.qq.com/s/h7CJ0by8UMpVtlvj2iwkvw)
 
