@@ -481,4 +481,5 @@
 * [拿自己做实验的科学家们：注射病毒！盲试疫苗！猛喝细菌！](https://mp.weixin.qq.com/s/gEt9tPR-hXFbIja9GARs9A)
 * [一天之内用自己的身体喂 3000 只蚊子！2 天吃 200 斤小龙虾！6 年改 329 稿！网友：这是科研还是吉尼斯啊？](https://mp.weixin.qq.com/s/osljE-0Ye6UQetMeUu93bw)
 * [看部电影就发了顶刊 BMJ！研究发现：蜘蛛侠睡眠不足，绿巨人有心脏病风险，黑寡妇很难长寿](https://mp.weixin.qq.com/s/h7CJ0by8UMpVtlvj2iwkvw)
+* [为什么说危机时刻还得靠兄弟？最新 SCI 研究：虽在安逸时，雄性偏好与异性互动，但面临生存压力时，则更倾向与同性伙伴进行社交互动](https://mp.weixin.qq.com/s/ZAhCRlfCazqvQBbty9ZVPg)
 
