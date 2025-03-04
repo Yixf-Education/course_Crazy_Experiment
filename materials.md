@@ -483,4 +483,5 @@
 * [看部电影就发了顶刊 BMJ！研究发现：蜘蛛侠睡眠不足，绿巨人有心脏病风险，黑寡妇很难长寿](https://mp.weixin.qq.com/s/h7CJ0by8UMpVtlvj2iwkvw)
 * [为什么说危机时刻还得靠兄弟？最新 SCI 研究：虽在安逸时，雄性偏好与异性互动，但面临生存压力时，则更倾向与同性伙伴进行社交互动](https://mp.weixin.qq.com/s/ZAhCRlfCazqvQBbty9ZVPg)
 * [你和 Ta 是 “一见钟情” 还是 “日久生情”？两项研究：现实中，日久生情更为常见，而一见钟情的两人身体会逐渐表现出生理性同步](https://mp.weixin.qq.com/s/PHJzJ-YJDTVG3bfrn8gL3g)
+* [科学家用电刺激强制人微笑，却发现他们更开心了](https://mp.weixin.qq.com/s/OMsQdCrlQhnzqYzUZEY8jw)
 
