@@ -485,4 +485,5 @@
 * [你和 Ta 是 “一见钟情” 还是 “日久生情”？两项研究：现实中，日久生情更为常见，而一见钟情的两人身体会逐渐表现出生理性同步](https://mp.weixin.qq.com/s/PHJzJ-YJDTVG3bfrn8gL3g)
 * [科学家用电刺激强制人微笑，却发现他们更开心了](https://mp.weixin.qq.com/s/OMsQdCrlQhnzqYzUZEY8jw)
 * [为了几口零食，狼就把自己驯化成了狗？｜自然小喇叭](https://mp.weixin.qq.com/s/sCczvdI9W2FfIMpoeNCKlA)
+* [没活硬整？美国人开始吃快递盒里的塑料泡沫，吃垃圾成了爱国主义行为？](https://mp.weixin.qq.com/s/tv1Xr11mydlGZ-g3u8XgzQ)
 
