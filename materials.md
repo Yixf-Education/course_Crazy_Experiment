@@ -487,4 +487,7 @@
 * [为了几口零食，狼就把自己驯化成了狗？｜自然小喇叭](https://mp.weixin.qq.com/s/sCczvdI9W2FfIMpoeNCKlA)
 * [没活硬整？美国人开始吃快递盒里的塑料泡沫，吃垃圾成了爱国主义行为？](https://mp.weixin.qq.com/s/tv1Xr11mydlGZ-g3u8XgzQ)
 * [如何鼓掌才能又响又长？10个人疯狂鼓掌，终于发现鼓掌秘诀……](https://mp.weixin.qq.com/s/Ow6xPP6mAyE6kiRHltj3Cg)
+* [全世界70亿人同时起跳，地球会天崩地裂？答案可能让你难以置信](https://mp.weixin.qq.com/s/jyuIAerhBSauUlyEkux9aQ)
+* [五秒定律，骗了你多少年](https://mp.weixin.qq.com/s/cZ7azviljbr4UwWw1YNn-g)
+* [当一颗发霉的哈密瓜成为人类救世主](https://mp.weixin.qq.com/s/TPatnUGRWLkxailn5p2NUw)
 
