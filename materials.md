@@ -2,7 +2,7 @@
 * [当你往下跳的时候，是你的头先往下掉，还是脚先往下掉？](http://chuansong.me/n/2593115451026)
 * [这位同学，我看你成绩不太好，是不是朋友没交对？]()
 * [人类史上历时最长的人类发展研究结论：出生贫穷很难逆袭](http://chuansong.me/n/2552914751026)
-* [搞笑诺贝尔奖：除了搞笑，知道点别的也很有必要]()
+* [搞笑诺贝尔奖：除了搞笑，知道点别的也很有必要[给77个非洲人吃两周西式快餐，这是他们身体发生的变化](https://mp.weixin.qq.com/s/OXG0q2qsVOEk0OpKPSevNw)]()
 * [骗人的数学题，那消失的1块钱到底被谁拿走了]()
 * [统计学的套路有多深，从“HPV疫苗降低生育率”的研究错误说起]()
 * [打水漂的必胜秘诀已被研究出来了，学会后你可能会赢到没朋友](http://chuansong.me/n/2531277351028)
@@ -491,4 +491,5 @@
 * [五秒定律，骗了你多少年](https://mp.weixin.qq.com/s/cZ7azviljbr4UwWw1YNn-g)
 * [当一颗发霉的哈密瓜成为人类救世主](https://mp.weixin.qq.com/s/TPatnUGRWLkxailn5p2NUw)
 * [什么？春天来了，我的睡眠质量也跟着季节变差了？](https://mp.weixin.qq.com/s/jf67Dis2bbrl_Osl4yaeEw)
+* [给77个非洲人吃两周西式快餐，这是他们身体发生的变化](https://mp.weixin.qq.com/s/OXG0q2qsVOEk0OpKPSevNw)
 
