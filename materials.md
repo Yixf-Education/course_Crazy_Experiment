@@ -492,4 +492,5 @@
 * [当一颗发霉的哈密瓜成为人类救世主](https://mp.weixin.qq.com/s/TPatnUGRWLkxailn5p2NUw)
 * [什么？春天来了，我的睡眠质量也跟着季节变差了？](https://mp.weixin.qq.com/s/jf67Dis2bbrl_Osl4yaeEw)
 * [给77个非洲人吃两周西式快餐，这是他们身体发生的变化](https://mp.weixin.qq.com/s/OXG0q2qsVOEk0OpKPSevNw)
+* [预防踩踏事件：密集人群如何形成“18秒涡旋”？](https://mp.weixin.qq.com/s/hQQj-OGc2RNkAO53FHlQAg)
 
