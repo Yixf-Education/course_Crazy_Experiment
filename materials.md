@@ -500,4 +500,6 @@
 * [Nature子刊：男女做实验，结果大不同！实验小鼠偏爱女性，厌恶男性，原因是......](https://mp.weixin.qq.com/s/nkpHdac23h7rIHxZtO8kMQ)
 * [有些人打拍子还没海狮打得准；思考艺术之美有助于培养大局观 | 环球科学要闻](https://mp.weixin.qq.com/s/adIHyzOy3vm0ZYqL-7Bk7g)
 * [北极熊的毛发在冰天雪地里为什么不会冻住?](https://mp.weixin.qq.com/s/qu48p5VdgTSf2QP5GStwZw)
+* [总是间歇性想躺平？这不是你的错！PNAS研究实锤：日常动机波动对基于努力的决策行为有显著影响，并且“特质冷漠”高的人更易放弃](https://mp.weixin.qq.com/s/agbHMRev0XzDnndj1q_oUw)
+* [新实验打破常识：鸡蛋这样落下才不容易碎！](https://mp.weixin.qq.com/s/xmGdAnRO-2p1oXnrRztA4A)
 
