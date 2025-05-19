@@ -499,4 +499,5 @@
 * [长期食用这类食物，他们再也感受不到吃饭的快乐](https://mp.weixin.qq.com/s/XgJiZWj7tpK5qLMZsrdz7Q)
 * [Nature子刊：男女做实验，结果大不同！实验小鼠偏爱女性，厌恶男性，原因是......](https://mp.weixin.qq.com/s/nkpHdac23h7rIHxZtO8kMQ)
 * [有些人打拍子还没海狮打得准；思考艺术之美有助于培养大局观 | 环球科学要闻](https://mp.weixin.qq.com/s/adIHyzOy3vm0ZYqL-7Bk7g)
+* [北极熊的毛发在冰天雪地里为什么不会冻住?](https://mp.weixin.qq.com/s/qu48p5VdgTSf2QP5GStwZw)
 
