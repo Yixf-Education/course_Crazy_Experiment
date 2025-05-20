@@ -502,4 +502,5 @@
 * [北极熊的毛发在冰天雪地里为什么不会冻住?](https://mp.weixin.qq.com/s/qu48p5VdgTSf2QP5GStwZw)
 * [总是间歇性想躺平？这不是你的错！PNAS研究实锤：日常动机波动对基于努力的决策行为有显著影响，并且“特质冷漠”高的人更易放弃](https://mp.weixin.qq.com/s/agbHMRev0XzDnndj1q_oUw)
 * [新实验打破常识：鸡蛋这样落下才不容易碎！](https://mp.weixin.qq.com/s/xmGdAnRO-2p1oXnrRztA4A)
+* [左撇子or右撇子有说法吗？左撇子真的更聪明吗？多项研究：左撇子领导创新力强、左撇子罕见编码变异更频繁且大脑连接方式与右撇子不同](https://mp.weixin.qq.com/s/FdeR1CSQp5W0v7x3Jhm_NA)
 
