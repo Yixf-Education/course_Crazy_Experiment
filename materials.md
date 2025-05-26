@@ -503,4 +503,7 @@
 * [总是间歇性想躺平？这不是你的错！PNAS研究实锤：日常动机波动对基于努力的决策行为有显著影响，并且“特质冷漠”高的人更易放弃](https://mp.weixin.qq.com/s/agbHMRev0XzDnndj1q_oUw)
 * [新实验打破常识：鸡蛋这样落下才不容易碎！](https://mp.weixin.qq.com/s/xmGdAnRO-2p1oXnrRztA4A)
 * [左撇子or右撇子有说法吗？左撇子真的更聪明吗？多项研究：左撇子领导创新力强、左撇子罕见编码变异更频繁且大脑连接方式与右撇子不同](https://mp.weixin.qq.com/s/FdeR1CSQp5W0v7x3Jhm_NA)
+* [捏捏、盘串，上班时总忍不住玩点什么？这可能是身体在帮你集中注意力！](https://mp.weixin.qq.com/s/9MPUaW-PHYOmJGKTVw44VQ)
+* [偷走你注意力的不是手机，而是这样东西](https://mp.weixin.qq.com/s/JFA0w_wgjGV8XcvoUrsBQQ)
+* [为什么除了人类，哺乳动物拉屎的时间都是12秒？](https://mp.weixin.qq.com/s/pnO2JdbaxgzSQbSDJqK9EQ)
 
