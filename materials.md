@@ -506,4 +506,5 @@
 * [捏捏、盘串，上班时总忍不住玩点什么？这可能是身体在帮你集中注意力！](https://mp.weixin.qq.com/s/9MPUaW-PHYOmJGKTVw44VQ)
 * [偷走你注意力的不是手机，而是这样东西](https://mp.weixin.qq.com/s/JFA0w_wgjGV8XcvoUrsBQQ)
 * [为什么除了人类，哺乳动物拉屎的时间都是12秒？](https://mp.weixin.qq.com/s/pnO2JdbaxgzSQbSDJqK9EQ)
+* [阅读讣告为何能够提高创造力？; 有些领域的“老专家”未必水平很高 | 科技趣评](https://mp.weixin.qq.com/s/ypDgup_eRkJPJN6M5WDBLg)
 
