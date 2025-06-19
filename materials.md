@@ -508,4 +508,5 @@
 * [为什么除了人类，哺乳动物拉屎的时间都是12秒？](https://mp.weixin.qq.com/s/pnO2JdbaxgzSQbSDJqK9EQ)
 * [阅读讣告为何能够提高创造力？; 有些领域的“老专家”未必水平很高 | 科技趣评](https://mp.weixin.qq.com/s/ypDgup_eRkJPJN6M5WDBLg)
 * [为什么学渣常觉得自己考得不错，学霸老觉得自己考砸了？](https://mp.weixin.qq.com/s/YeCkqpdNsk1_DkakfkfIuQ)
+* [狗为什么会像它的主人？这是科学依据](https://mp.weixin.qq.com/s/nmNBRIrei-wYpp6zc9ZPWw)
 
