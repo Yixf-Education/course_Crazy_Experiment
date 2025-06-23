@@ -509,4 +509,5 @@
 * [阅读讣告为何能够提高创造力？; 有些领域的“老专家”未必水平很高 | 科技趣评](https://mp.weixin.qq.com/s/ypDgup_eRkJPJN6M5WDBLg)
 * [为什么学渣常觉得自己考得不错，学霸老觉得自己考砸了？](https://mp.weixin.qq.com/s/YeCkqpdNsk1_DkakfkfIuQ)
 * [狗为什么会像它的主人？这是科学依据](https://mp.weixin.qq.com/s/nmNBRIrei-wYpp6zc9ZPWw)
+* [和25只小鼠同吃同住3年后，一位哲学家悟了](https://mp.weixin.qq.com/s/U-tjsNvZO5KgJ9f8Whf4Nw)
 
