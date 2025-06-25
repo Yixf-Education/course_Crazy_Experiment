@@ -510,4 +510,5 @@
 * [为什么学渣常觉得自己考得不错，学霸老觉得自己考砸了？](https://mp.weixin.qq.com/s/YeCkqpdNsk1_DkakfkfIuQ)
 * [狗为什么会像它的主人？这是科学依据](https://mp.weixin.qq.com/s/nmNBRIrei-wYpp6zc9ZPWw)
 * [和25只小鼠同吃同住3年后，一位哲学家悟了](https://mp.weixin.qq.com/s/U-tjsNvZO5KgJ9f8Whf4Nw)
+* [为什么越想忘的事，记得越清楚？](https://mp.weixin.qq.com/s/HWJrbG1ST5nnuO_lhloZ9Q)
 
