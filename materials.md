@@ -512,4 +512,5 @@
 * [和25只小鼠同吃同住3年后，一位哲学家悟了](https://mp.weixin.qq.com/s/U-tjsNvZO5KgJ9f8Whf4Nw)
 * [为什么越想忘的事，记得越清楚？](https://mp.weixin.qq.com/s/HWJrbG1ST5nnuO_lhloZ9Q)
 * [把人类大便做成冻干再装进胶囊，医生正在研发可以治疗多种顽疾的“超级新药”](https://mp.weixin.qq.com/s/Oj1A5oRCCEfiqGf-t0J6gQ)
+* [这些堪称“疯子”的科学家，还真的是一个比一个疯狂](https://mp.weixin.qq.com/s/UM4aDUOqSMemKktbKmSBPg)
 
