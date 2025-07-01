@@ -513,4 +513,5 @@
 * [为什么越想忘的事，记得越清楚？](https://mp.weixin.qq.com/s/HWJrbG1ST5nnuO_lhloZ9Q)
 * [把人类大便做成冻干再装进胶囊，医生正在研发可以治疗多种顽疾的“超级新药”](https://mp.weixin.qq.com/s/Oj1A5oRCCEfiqGf-t0J6gQ)
 * [这些堪称“疯子”的科学家，还真的是一个比一个疯狂](https://mp.weixin.qq.com/s/UM4aDUOqSMemKktbKmSBPg)
+* [遇到困难睡一觉，灵感竟能暴增70%！老板再也不能怪我上班打盹了](https://mp.weixin.qq.com/s/h2V3OGSBNzhhh6j1wDdCEw)
 
