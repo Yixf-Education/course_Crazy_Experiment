@@ -514,4 +514,5 @@
 * [把人类大便做成冻干再装进胶囊，医生正在研发可以治疗多种顽疾的“超级新药”](https://mp.weixin.qq.com/s/Oj1A5oRCCEfiqGf-t0J6gQ)
 * [这些堪称“疯子”的科学家，还真的是一个比一个疯狂](https://mp.weixin.qq.com/s/UM4aDUOqSMemKktbKmSBPg)
 * [遇到困难睡一觉，灵感竟能暴增70%！老板再也不能怪我上班打盹了](https://mp.weixin.qq.com/s/h2V3OGSBNzhhh6j1wDdCEw)
+* [真不愧是老祖宗严选！最新研究：太极拳、八段锦、六字诀等传统“中式养生法”能显著改善高血压患者糖脂代谢和血管健康](https://mp.weixin.qq.com/s/zwKJBV26Sk2dquPrxPlilQ)
 
