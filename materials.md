@@ -516,4 +516,6 @@
 * [遇到困难睡一觉，灵感竟能暴增70%！老板再也不能怪我上班打盹了](https://mp.weixin.qq.com/s/h2V3OGSBNzhhh6j1wDdCEw)
 * [真不愧是老祖宗严选！最新研究：太极拳、八段锦、六字诀等传统“中式养生法”能显著改善高血压患者糖脂代谢和血管健康](https://mp.weixin.qq.com/s/zwKJBV26Sk2dquPrxPlilQ)
 * [体脂率多少的男/女性最具吸引力？三项科学研究揭露“完美身材”：男性体脂率13-14%+肩腰比1.57；女性完美身材则更为严格](https://mp.weixin.qq.com/s/RkeuO9cBbgVb4-_tJtIsRA)
+* [掏了200多个人的耳朵，他们发现有这种气味的人，行动能力会逐渐丧失](https://mp.weixin.qq.com/s/mGVMSG82plBU2lk4BU2GPA)
+* [怀孕对女性身体的真实影响：近20年研究，30万例分娩数据](https://mp.weixin.qq.com/s/w8pgGwRvBonLvUBCHu8PSg)
 
