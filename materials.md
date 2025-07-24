@@ -518,4 +518,5 @@
 * [体脂率多少的男/女性最具吸引力？三项科学研究揭露“完美身材”：男性体脂率13-14%+肩腰比1.57；女性完美身材则更为严格](https://mp.weixin.qq.com/s/RkeuO9cBbgVb4-_tJtIsRA)
 * [掏了200多个人的耳朵，他们发现有这种气味的人，行动能力会逐渐丧失](https://mp.weixin.qq.com/s/mGVMSG82plBU2lk4BU2GPA)
 * [怀孕对女性身体的真实影响：近20年研究，30万例分娩数据](https://mp.weixin.qq.com/s/w8pgGwRvBonLvUBCHu8PSg)
+* [孩子真是“3岁看大，7岁看老”？！PNAS：7个月婴儿对玩具新奇偏好和专注力，或能预测其智商水平，遗传因素和家庭环境影响更大](https://mp.weixin.qq.com/s/GW9cDIWPgylvVVU89SCwfA)
 
