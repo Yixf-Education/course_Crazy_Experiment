@@ -519,4 +519,6 @@
 * [掏了200多个人的耳朵，他们发现有这种气味的人，行动能力会逐渐丧失](https://mp.weixin.qq.com/s/mGVMSG82plBU2lk4BU2GPA)
 * [怀孕对女性身体的真实影响：近20年研究，30万例分娩数据](https://mp.weixin.qq.com/s/w8pgGwRvBonLvUBCHu8PSg)
 * [孩子真是“3岁看大，7岁看老”？！PNAS：7个月婴儿对玩具新奇偏好和专注力，或能预测其智商水平，遗传因素和家庭环境影响更大](https://mp.weixin.qq.com/s/GW9cDIWPgylvVVU89SCwfA)
+* [电刺激大脑可提升数学成绩！为挽救英国人数学水平，科学家推荐靠电“鸡娃”](https://mp.weixin.qq.com/s/jYwWtZQ04cS4oa0QwTjOAA)
+* [和什么样的另一半进入婚姻才会幸福？近10万对夫妻数据给出答案：较高水平的情感和工具性支持、注重修炼自身，以及两人80%的相似性](https://mp.weixin.qq.com/s/coGKGOmRecUbt7eU4ta0PQ)
 
