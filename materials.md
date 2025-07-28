@@ -521,4 +521,6 @@
 * [孩子真是“3岁看大，7岁看老”？！PNAS：7个月婴儿对玩具新奇偏好和专注力，或能预测其智商水平，遗传因素和家庭环境影响更大](https://mp.weixin.qq.com/s/GW9cDIWPgylvVVU89SCwfA)
 * [电刺激大脑可提升数学成绩！为挽救英国人数学水平，科学家推荐靠电“鸡娃”](https://mp.weixin.qq.com/s/jYwWtZQ04cS4oa0QwTjOAA)
 * [和什么样的另一半进入婚姻才会幸福？近10万对夫妻数据给出答案：较高水平的情感和工具性支持、注重修炼自身，以及两人80%的相似性](https://mp.weixin.qq.com/s/coGKGOmRecUbt7eU4ta0PQ)
+* [人均每天刷短视频2.6小时！它正在“吃掉”你的大脑？多项研究：短视频不仅影响心理健康，还改变大脑功能](https://mp.weixin.qq.com/s/-_-j0nWt_bjFZjMkNNjt-w)
+* [看似加速，实则拖慢：AI 写代码让开发者效率倒退19%](https://mp.weixin.qq.com/s/kf60EL8S7ihw0Aw481CisQ)
 
