@@ -523,4 +523,7 @@
 * [和什么样的另一半进入婚姻才会幸福？近10万对夫妻数据给出答案：较高水平的情感和工具性支持、注重修炼自身，以及两人80%的相似性](https://mp.weixin.qq.com/s/coGKGOmRecUbt7eU4ta0PQ)
 * [人均每天刷短视频2.6小时！它正在“吃掉”你的大脑？多项研究：短视频不仅影响心理健康，还改变大脑功能](https://mp.weixin.qq.com/s/-_-j0nWt_bjFZjMkNNjt-w)
 * [看似加速，实则拖慢：AI 写代码让开发者效率倒退19%](https://mp.weixin.qq.com/s/kf60EL8S7ihw0Aw481CisQ)
+* [8年，238次人类活体实验，得51条推论，他终成消化生理学之父！然而，人在做天在看，他最终没活过“小白鼠”！](https://mp.weixin.qq.com/s/W8mRw1QAcrVSxROGD72yBQ)
+* [8年，238次人类活体实验，得51条推论，他终成消化生理学之父！然而，人在做天在看，他最终没活过“小白鼠”！](https://mp.weixin.qq.com/s/W8mRw1QAcrVSxROGD72yBQ)
+* [极端高温！法国埃菲尔铁塔竟然被热到弯曲，会成为第二个“斜塔”吗？](https://mp.weixin.qq.com/s/R9JcbxXykl4oNWazJUY0Ew)
 
