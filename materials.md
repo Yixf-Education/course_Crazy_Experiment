@@ -528,4 +528,5 @@
 * [极端高温！法国埃菲尔铁塔竟然被热到弯曲，会成为第二个“斜塔”吗？](https://mp.weixin.qq.com/s/R9JcbxXykl4oNWazJUY0Ew)
 * [“坚持35年记录指甲生长”，2025年搞笑诺贝尔奖，来了！](https://mp.weixin.qq.com/s/BzHGxLH1CnG4vKkOS7GIOA)
 * [为什么女性总比男性活得长？最新Sci. Adv：性选择，也就是“找对象”的压力，可能是导致男女（雌雄）寿命差异的关键原因](https://mp.weixin.qq.com/s/0EB00m7jxIJGkMGiATHEBQ)
+* [“运气的马太效应”：好运如何塑造不平等？](https://mp.weixin.qq.com/s/xD_pzNDAFykprVXFUvki0Q)
 
