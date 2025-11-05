@@ -529,4 +529,6 @@
 * [“坚持35年记录指甲生长”，2025年搞笑诺贝尔奖，来了！](https://mp.weixin.qq.com/s/BzHGxLH1CnG4vKkOS7GIOA)
 * [为什么女性总比男性活得长？最新Sci. Adv：性选择，也就是“找对象”的压力，可能是导致男女（雌雄）寿命差异的关键原因](https://mp.weixin.qq.com/s/0EB00m7jxIJGkMGiATHEBQ)
 * [“运气的马太效应”：好运如何塑造不平等？](https://mp.weixin.qq.com/s/xD_pzNDAFykprVXFUvki0Q)
+* [一头鲸鱼，竟然出现在亚马逊丛林里？令科学家困惑不已](https://mp.weixin.qq.com/s/CCHxLoI7Ffym32chZvhxIg)
+* [事实证明，刷牙后不应该漱口（儿童例外）](https://mp.weixin.qq.com/s/7x6OgwiC45HDW3jodBMjjQ)
 
