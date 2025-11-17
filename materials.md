@@ -531,4 +531,5 @@
 * [“运气的马太效应”：好运如何塑造不平等？](https://mp.weixin.qq.com/s/xD_pzNDAFykprVXFUvki0Q)
 * [一头鲸鱼，竟然出现在亚马逊丛林里？令科学家困惑不已](https://mp.weixin.qq.com/s/CCHxLoI7Ffym32chZvhxIg)
 * [事实证明，刷牙后不应该漱口（儿童例外）](https://mp.weixin.qq.com/s/7x6OgwiC45HDW3jodBMjjQ)
+* [大脑切成两半后，他拥有了两个意识，而科学家得了诺奖](https://mp.weixin.qq.com/s/qOFlOwFkadDNTKSWPvONTg)
 
