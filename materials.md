@@ -532,4 +532,6 @@
 * [一头鲸鱼，竟然出现在亚马逊丛林里？令科学家困惑不已](https://mp.weixin.qq.com/s/CCHxLoI7Ffym32chZvhxIg)
 * [事实证明，刷牙后不应该漱口（儿童例外）](https://mp.weixin.qq.com/s/7x6OgwiC45HDW3jodBMjjQ)
 * [大脑切成两半后，他拥有了两个意识，而科学家得了诺奖](https://mp.weixin.qq.com/s/qOFlOwFkadDNTKSWPvONTg)
+* [Science | 慢热者的逆袭：“大器晚成”定律](https://mp.weixin.qq.com/s/mjGaw-4cL7cLya3jl6VazQ)
+* [以前的班级第一名，现在还是过得最好的吗？最新 SCI 颠覆认知：早期表现水平与最终成就呈负相关，巅峰王者多是“后来居上”者](https://mp.weixin.qq.com/s/Bhg4ET7wYITiRFyJledMrA)
 
