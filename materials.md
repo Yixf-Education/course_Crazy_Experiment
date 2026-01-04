@@ -534,4 +534,6 @@
 * [大脑切成两半后，他拥有了两个意识，而科学家得了诺奖](https://mp.weixin.qq.com/s/qOFlOwFkadDNTKSWPvONTg)
 * [Science | 慢热者的逆袭：“大器晚成”定律](https://mp.weixin.qq.com/s/mjGaw-4cL7cLya3jl6VazQ)
 * [以前的班级第一名，现在还是过得最好的吗？最新 SCI 颠覆认知：早期表现水平与最终成就呈负相关，巅峰王者多是“后来居上”者](https://mp.weixin.qq.com/s/Bhg4ET7wYITiRFyJledMrA)
+* [过年过节总能听到洗脑歌？“恭喜发财”其实是幻听？！大脑：爱你老己](https://mp.weixin.qq.com/s/ltjg9T-auKQQLZjUSc8HJw)
+* [“拼爹”拼的是什么呢？研究指出三点：父亲社会经济地位存在代际惯性，其学历越高、家庭越稳定，孩子越幸福，且父亲多带孩子，双方获益](https://mp.weixin.qq.com/s/W4s1HaVpwNuQm4B4GkS5mA)
 
