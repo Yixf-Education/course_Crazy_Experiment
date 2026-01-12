@@ -536,4 +536,6 @@
 * [以前的班级第一名，现在还是过得最好的吗？最新 SCI 颠覆认知：早期表现水平与最终成就呈负相关，巅峰王者多是“后来居上”者](https://mp.weixin.qq.com/s/Bhg4ET7wYITiRFyJledMrA)
 * [过年过节总能听到洗脑歌？“恭喜发财”其实是幻听？！大脑：爱你老己](https://mp.weixin.qq.com/s/ltjg9T-auKQQLZjUSc8HJw)
 * [“拼爹”拼的是什么呢？研究指出三点：父亲社会经济地位存在代际惯性，其学历越高、家庭越稳定，孩子越幸福，且父亲多带孩子，双方获益](https://mp.weixin.qq.com/s/W4s1HaVpwNuQm4B4GkS5mA)
+* [卵子，拥有你不曾想象的“择偶权”！研究解读：生理性喜欢，嗅觉、卵子都有话语权，卵子会筛选出免疫系统更多样、环境适应力更强的精子](https://mp.weixin.qq.com/s/d7v6KSBg1vSkgAcIbaeelw)
+* [变得更强，还是更能生？为了种族，你愿意舍弃哪种能力？](https://mp.weixin.qq.com/s/qzUkncqdduIeNPXMXenNRg)
 
