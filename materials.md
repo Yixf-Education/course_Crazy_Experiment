@@ -539,4 +539,5 @@
 * [卵子，拥有你不曾想象的“择偶权”！研究解读：生理性喜欢，嗅觉、卵子都有话语权，卵子会筛选出免疫系统更多样、环境适应力更强的精子](https://mp.weixin.qq.com/s/d7v6KSBg1vSkgAcIbaeelw)
 * [变得更强，还是更能生？为了种族，你愿意舍弃哪种能力？](https://mp.weixin.qq.com/s/qzUkncqdduIeNPXMXenNRg)
 * [萝卜 or 纸巾，“真棒”小猫你看过了吗？研究证实：猫咪不仅能对应记住同居猫伙伴、人类家庭成员的名字与面孔，学习能力甚至堪比人类幼崽](https://mp.weixin.qq.com/s/Bwx31yBbw5n5VhweM9dCqA)
+* [同性恋为何没有在进化中消失？《Nature》头条：同性性行为有助于灵长类生存和繁衍](https://mp.weixin.qq.com/s/vDcIrXibYJ6aBx0aHmn50g)
 
