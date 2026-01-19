@@ -540,4 +540,7 @@
 * [变得更强，还是更能生？为了种族，你愿意舍弃哪种能力？](https://mp.weixin.qq.com/s/qzUkncqdduIeNPXMXenNRg)
 * [萝卜 or 纸巾，“真棒”小猫你看过了吗？研究证实：猫咪不仅能对应记住同居猫伙伴、人类家庭成员的名字与面孔，学习能力甚至堪比人类幼崽](https://mp.weixin.qq.com/s/Bwx31yBbw5n5VhweM9dCqA)
 * [同性恋为何没有在进化中消失？《Nature》头条：同性性行为有助于灵长类生存和繁衍](https://mp.weixin.qq.com/s/vDcIrXibYJ6aBx0aHmn50g)
+* [现在流行用蒜味漱口水？以毒攻毒居然真的有效，还比传统漱口水更好…](https://mp.weixin.qq.com/s/r_vANs9N75EMSJ2--gzwvw)
+* [16 岁少女被当成活体实验样本，遭电击灌药后终身服药，涉事者竟全员免罚？](https://mp.weixin.qq.com/s/it8AdnyqGTk4e-o4ZeLGUw)
+* [“她一哭，他就慌了”竟有科学依据！美国杜克大学：女性眼泪传递的信号可以降低男性攻击性](https://mp.weixin.qq.com/s/RyLRwNESbgC8kGazPUKRtg)
 
