@@ -544,4 +544,5 @@
 * [16 岁少女被当成活体实验样本，遭电击灌药后终身服药，涉事者竟全员免罚？](https://mp.weixin.qq.com/s/it8AdnyqGTk4e-o4ZeLGUw)
 * [“她一哭，他就慌了”竟有科学依据！美国杜克大学：女性眼泪传递的信号可以降低男性攻击性](https://mp.weixin.qq.com/s/RyLRwNESbgC8kGazPUKRtg)
 * [Current Biology 封面 | 颠覆认知！这头名叫 Veronika 的牛竟然会用“工具”？](https://mp.weixin.qq.com/s/9G7utlCf39rgGmTIYnhYLA)
+* [一放假就生病？别再自嘲“天选打工人”，你的身体被压力骗了！](https://mp.weixin.qq.com/s/9dPV65CF_qyc7E0bhgPgYQ)
 
