@@ -548,4 +548,6 @@
 * [被遗弃的小猴子难以融入群体、总被欺负，毛绒玩偶是它温暖柔软的“妈妈”](https://mp.weixin.qq.com/s/4M8xA2QSSueCrHrnuWPoMQ)
 * [最新研究：如果视频面试卡顿了，面试官大脑很可能判定面试者不是人](https://mp.weixin.qq.com/s/0fOJ9DQEv-nbejrAHwU5SQ)
 * [中国学者最新Cell子刊：缺乏性行为疯狂促癌，让免疫系统“装睡”，削弱抗癌力；而保持性行为帮助抗癌，延长生存期](https://mp.weixin.qq.com/s/hEA-x_-8tawPMuPReL3guA)
+* [打哈欠的神秘能力：为了晃匀脑子里的水，让你的大脑更干净？](https://mp.weixin.qq.com/s/rud1ihrUAOK3M4QZ_QXyNw)
+* [腹部炸出大洞却奇迹生还，他当了 10 年活体样本，死后被家人深埋地下](https://mp.weixin.qq.com/s/qYwtRnc_nhpaeQrUXLtXwA)
 
