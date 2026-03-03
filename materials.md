@@ -546,4 +546,6 @@
 * [Current Biology 封面 | 颠覆认知！这头名叫 Veronika 的牛竟然会用“工具”？](https://mp.weixin.qq.com/s/9G7utlCf39rgGmTIYnhYLA)
 * [一放假就生病？别再自嘲“天选打工人”，你的身体被压力骗了！](https://mp.weixin.qq.com/s/9dPV65CF_qyc7E0bhgPgYQ)
 * [被遗弃的小猴子难以融入群体、总被欺负，毛绒玩偶是它温暖柔软的“妈妈”](https://mp.weixin.qq.com/s/4M8xA2QSSueCrHrnuWPoMQ)
+* [最新研究：如果视频面试卡顿了，面试官大脑很可能判定面试者不是人](https://mp.weixin.qq.com/s/0fOJ9DQEv-nbejrAHwU5SQ)
+* [中国学者最新Cell子刊：缺乏性行为疯狂促癌，让免疫系统“装睡”，削弱抗癌力；而保持性行为帮助抗癌，延长生存期](https://mp.weixin.qq.com/s/hEA-x_-8tawPMuPReL3guA)
 
