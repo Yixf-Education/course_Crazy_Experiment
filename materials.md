@@ -550,4 +550,5 @@
 * [中国学者最新Cell子刊：缺乏性行为疯狂促癌，让免疫系统“装睡”，削弱抗癌力；而保持性行为帮助抗癌，延长生存期](https://mp.weixin.qq.com/s/hEA-x_-8tawPMuPReL3guA)
 * [打哈欠的神秘能力：为了晃匀脑子里的水，让你的大脑更干净？](https://mp.weixin.qq.com/s/rud1ihrUAOK3M4QZ_QXyNw)
 * [腹部炸出大洞却奇迹生还，他当了 10 年活体样本，死后被家人深埋地下](https://mp.weixin.qq.com/s/qYwtRnc_nhpaeQrUXLtXwA)
+* [真是“肌肉越发达，头脑越简单”？多项研究：俯卧撑、撸铁等抗阻训练能有效延缓大脑衰老，特别是腿部力量的提升可降低脑龄](https://mp.weixin.qq.com/s/9k0_al6SvJtgaIrZs0I-JA)
 
