@@ -552,4 +552,5 @@
 * [腹部炸出大洞却奇迹生还，他当了 10 年活体样本，死后被家人深埋地下](https://mp.weixin.qq.com/s/qYwtRnc_nhpaeQrUXLtXwA)
 * [真是“肌肉越发达，头脑越简单”？多项研究：俯卧撑、撸铁等抗阻训练能有效延缓大脑衰老，特别是腿部力量的提升可降低脑龄](https://mp.weixin.qq.com/s/9k0_al6SvJtgaIrZs0I-JA)
 * [“夫妻相”竟真的存在？Nature子刊：相似度80%以上的人更易成为伴侣；后代同时继承父母的特征与择偶偏好，让人本能爱上“另一个](https://mp.weixin.qq.com/s/O3-yQrQcAQMyvRHf27Y7EQ)
+* [她直播70天，从1数到107万，数到最后数字脑子发生了什么变化？](https://mp.weixin.qq.com/s/nCz--mQIoTVIOxHDLEXrLA)
 
