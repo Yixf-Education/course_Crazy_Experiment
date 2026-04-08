@@ -555,4 +555,5 @@
 * [“夫妻相”竟真的存在？Nature子刊：相似度80%以上的人更易成为伴侣；后代同时继承父母的特征与择偶偏好，让人本能爱上“另一个](https://mp.weixin.qq.com/s/O3-yQrQcAQMyvRHf27Y7EQ)
 * [她直播70天，从1数到107万，数到最后数字脑子发生了什么变化？](https://mp.weixin.qq.com/s/nCz--mQIoTVIOxHDLEXrLA)
 * [登上SCI的新物种，竟被网友扒出只是塑料玩具！审稿人真好骗](https://mp.weixin.qq.com/s/nhZOxmzqxY7d-eu-4ifS0w)
+* [Science封面研究：谄媚的AI，正在无脑给你捧场](https://mp.weixin.qq.com/s/5dtyPmqTxLcBx7y7qVXXqQ)
 
