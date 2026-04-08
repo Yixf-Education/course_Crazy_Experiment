@@ -556,4 +556,5 @@
 * [她直播70天，从1数到107万，数到最后数字脑子发生了什么变化？](https://mp.weixin.qq.com/s/nCz--mQIoTVIOxHDLEXrLA)
 * [登上SCI的新物种，竟被网友扒出只是塑料玩具！审稿人真好骗](https://mp.weixin.qq.com/s/nhZOxmzqxY7d-eu-4ifS0w)
 * [Science封面研究：谄媚的AI，正在无脑给你捧场](https://mp.weixin.qq.com/s/5dtyPmqTxLcBx7y7qVXXqQ)
+* [23 岁科学家把自己活埋至 110 米地下，无钟表无太阳，205 天后，生物钟乱成 48 小时](https://mp.weixin.qq.com/s/yhwqODsM3GAxubma70Y2_A)
 
