@@ -558,4 +558,5 @@
 * [Science封面研究：谄媚的AI，正在无脑给你捧场](https://mp.weixin.qq.com/s/5dtyPmqTxLcBx7y7qVXXqQ)
 * [23 岁科学家把自己活埋至 110 米地下，无钟表无太阳，205 天后，生物钟乱成 48 小时](https://mp.weixin.qq.com/s/yhwqODsM3GAxubma70Y2_A)
 * [我做了一个「自动搜罗顶刊文献」工具](https://mp.weixin.qq.com/s/QJIsSgQrC5pSM-SDP9SIig)
+* [一句优秀脏话需要具备什么素质？数学博士用公式证明“世界终极脏话”](https://mp.weixin.qq.com/s/L2Xm5F5R6gl_Kh3XyHiqSg)
 
