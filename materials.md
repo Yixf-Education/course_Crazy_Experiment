@@ -559,4 +559,8 @@
 * [23 岁科学家把自己活埋至 110 米地下，无钟表无太阳，205 天后，生物钟乱成 48 小时](https://mp.weixin.qq.com/s/yhwqODsM3GAxubma70Y2_A)
 * [我做了一个「自动搜罗顶刊文献」工具](https://mp.weixin.qq.com/s/QJIsSgQrC5pSM-SDP9SIig)
 * [一句优秀脏话需要具备什么素质？数学博士用公式证明“世界终极脏话”](https://mp.weixin.qq.com/s/L2Xm5F5R6gl_Kh3XyHiqSg)
+* [蚊子为何总往人脸上冲？看似胡乱飞行其实故意瞄准你的脑袋](https://mp.weixin.qq.com/s/2PeLLJCsD9brNSA9-04JTQ)
+* [经常在这个睡眠阶段醒，你也有机会变天才](https://mp.weixin.qq.com/s/9b2DE0RgcWBcm4PLg4UKxQ)
+* [伯克利计算机基础课挂科率飙升至35%，学生过度依赖AI导致“智力萎缩”/Anthropic呼吁全球中止AI研发：“自进化过快”](https://mp.weixin.qq.com/s/pZpP6TbRnHWUcGodck8bLA)
+* 
 
