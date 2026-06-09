@@ -562,5 +562,6 @@
 * [蚊子为何总往人脸上冲？看似胡乱飞行其实故意瞄准你的脑袋](https://mp.weixin.qq.com/s/2PeLLJCsD9brNSA9-04JTQ)
 * [经常在这个睡眠阶段醒，你也有机会变天才](https://mp.weixin.qq.com/s/9b2DE0RgcWBcm4PLg4UKxQ)
 * [伯克利计算机基础课挂科率飙升至35%，学生过度依赖AI导致“智力萎缩”/Anthropic呼吁全球中止AI研发：“自进化过快”](https://mp.weixin.qq.com/s/pZpP6TbRnHWUcGodck8bLA)
+* [26岁拿下MIT数学博士，两获搞笑诺奖，他终于破解蚊子为什么总咬你](https://mp.weixin.qq.com/s/au26wHwMKyzLvAHHpNWylg)
 * 
 
