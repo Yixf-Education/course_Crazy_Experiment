@@ -563,5 +563,5 @@
 * [经常在这个睡眠阶段醒，你也有机会变天才](https://mp.weixin.qq.com/s/9b2DE0RgcWBcm4PLg4UKxQ)
 * [伯克利计算机基础课挂科率飙升至35%，学生过度依赖AI导致“智力萎缩”/Anthropic呼吁全球中止AI研发：“自进化过快”](https://mp.weixin.qq.com/s/pZpP6TbRnHWUcGodck8bLA)
 * [26岁拿下MIT数学博士，两获搞笑诺奖，他终于破解蚊子为什么总咬你](https://mp.weixin.qq.com/s/au26wHwMKyzLvAHHpNWylg)
-* 
+* [生育力骤降40%，还致癌？最新研究：每一次化妆，都在摧毁免疫系统、扰乱代谢、拖累发育；且唇部和眼部化妆品是“重灾区”](https://mp.weixin.qq.com/s/Y5_TLsKzm5_XZPK4PcqaGg)
 
