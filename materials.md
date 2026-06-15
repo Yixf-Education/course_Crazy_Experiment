@@ -566,4 +566,5 @@
 * [生育力骤降40%，还致癌？最新研究：每一次化妆，都在摧毁免疫系统、扰乱代谢、拖累发育；且唇部和眼部化妆品是“重灾区”](https://mp.weixin.qq.com/s/Y5_TLsKzm5_XZPK4PcqaGg)
 * [老旧建筑和地下室容易“闹鬼”，因为地下室有这种东西](https://mp.weixin.qq.com/s/WIoBun1Wj-0gjuXTAwFknA)
 * [蚊子又进化了！你狂喷的驱蚊水，竟成了“引蚊剂”，正在疯狂吸引蚊子](https://mp.weixin.qq.com/s/P2aS_DtfF9Sy6uuTFPHTIw)
+* [你选另一半，看脸还是看脑子？研究揭秘：男性智商越高，反而越忠诚、越不PUA，且更舍得为伴侣投资；雌性小鼠则更看重“优势互补”](https://mp.weixin.qq.com/s/f30z1fkSMgnQVWxpWSYXqg)
 
