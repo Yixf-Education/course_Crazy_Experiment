@@ -567,4 +567,6 @@
 * [老旧建筑和地下室容易“闹鬼”，因为地下室有这种东西](https://mp.weixin.qq.com/s/WIoBun1Wj-0gjuXTAwFknA)
 * [蚊子又进化了！你狂喷的驱蚊水，竟成了“引蚊剂”，正在疯狂吸引蚊子](https://mp.weixin.qq.com/s/P2aS_DtfF9Sy6uuTFPHTIw)
 * [你选另一半，看脸还是看脑子？研究揭秘：男性智商越高，反而越忠诚、越不PUA，且更舍得为伴侣投资；雌性小鼠则更看重“优势互补”](https://mp.weixin.qq.com/s/f30z1fkSMgnQVWxpWSYXqg)
+* [热疯了是真的！炎热让人成绩下降，狗开始咬人，鸟用头撞墙，到处都在打架……](https://mp.weixin.qq.com/s/lab6YEne8NWkNQLml2Zzjw)
+* [为了寻找犯罪凶手，科学家给猪的尸体穿上了衣服，观察它们腐烂的过程](https://mp.weixin.qq.com/s/63XluT9QUa9yiMXmzo90qg)
 
