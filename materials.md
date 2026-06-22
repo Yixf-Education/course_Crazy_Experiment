@@ -569,4 +569,5 @@
 * [你选另一半，看脸还是看脑子？研究揭秘：男性智商越高，反而越忠诚、越不PUA，且更舍得为伴侣投资；雌性小鼠则更看重“优势互补”](https://mp.weixin.qq.com/s/f30z1fkSMgnQVWxpWSYXqg)
 * [热疯了是真的！炎热让人成绩下降，狗开始咬人，鸟用头撞墙，到处都在打架……](https://mp.weixin.qq.com/s/lab6YEne8NWkNQLml2Zzjw)
 * [为了寻找犯罪凶手，科学家给猪的尸体穿上了衣服，观察它们腐烂的过程](https://mp.weixin.qq.com/s/63XluT9QUa9yiMXmzo90qg)
+* [遇到讨厌的人时，人们似乎更喜欢往左绕；你也是这样吗？｜万物周报](https://mp.weixin.qq.com/s/BDBcxS0h6TfrUid5vE9KXQ)
 
