@@ -570,4 +570,5 @@
 * [热疯了是真的！炎热让人成绩下降，狗开始咬人，鸟用头撞墙，到处都在打架……](https://mp.weixin.qq.com/s/lab6YEne8NWkNQLml2Zzjw)
 * [为了寻找犯罪凶手，科学家给猪的尸体穿上了衣服，观察它们腐烂的过程](https://mp.weixin.qq.com/s/63XluT9QUa9yiMXmzo90qg)
 * [遇到讨厌的人时，人们似乎更喜欢往左绕；你也是这样吗？｜万物周报](https://mp.weixin.qq.com/s/BDBcxS0h6TfrUid5vE9KXQ)
+* [电子游戏史上有哪些全世界玩家一起共创的传奇事件？](https://mp.weixin.qq.com/s/O3wHcCpVD9tqRMQ18_bRJw)
 
