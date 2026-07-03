@@ -571,4 +571,6 @@
 * [为了寻找犯罪凶手，科学家给猪的尸体穿上了衣服，观察它们腐烂的过程](https://mp.weixin.qq.com/s/63XluT9QUa9yiMXmzo90qg)
 * [遇到讨厌的人时，人们似乎更喜欢往左绕；你也是这样吗？｜万物周报](https://mp.weixin.qq.com/s/BDBcxS0h6TfrUid5vE9KXQ)
 * [电子游戏史上有哪些全世界玩家一起共创的传奇事件？](https://mp.weixin.qq.com/s/O3wHcCpVD9tqRMQ18_bRJw)
+* [把一条死鲑鱼放进fMRI，却发现它的大脑还在转](https://mp.weixin.qq.com/s/oZ-Z67rd4D6SLKTnAgFh1Q)
+* [生育率一直提不上来？别急！最新研究：低生育率不仅很可能长期持续下去，而且在某些条件下，它还能促进经济](https://mp.weixin.qq.com/s/8jihrtizJjK5-Om-DxW3sQ)
 
