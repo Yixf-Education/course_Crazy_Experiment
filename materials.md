@@ -573,4 +573,7 @@
 * [电子游戏史上有哪些全世界玩家一起共创的传奇事件？](https://mp.weixin.qq.com/s/O3wHcCpVD9tqRMQ18_bRJw)
 * [把一条死鲑鱼放进fMRI，却发现它的大脑还在转](https://mp.weixin.qq.com/s/oZ-Z67rd4D6SLKTnAgFh1Q)
 * [生育率一直提不上来？别急！最新研究：低生育率不仅很可能长期持续下去，而且在某些条件下，它还能促进经济](https://mp.weixin.qq.com/s/8jihrtizJjK5-Om-DxW3sQ)
+* [洗一副牌要洗几次才算真的洗匀？数学家研究了几十年，答案比你想的怪！](https://mp.weixin.qq.com/s/AXJ4CL8eW19M8jaSBgm9kQ)
+* [因为没空调，法国人开始在窗户上涂白垩粉、涂酸奶…？热得没招还是真有用？](chrome-extension://noogafoofpebimajpfpamcfhoaifemoa/suspended.html#ttl=%E5%9B%A0%E4%B8%BA%E6%B2%A1%E7%A9%BA%E8%B0%83%EF%BC%8C%E6%B3%95%E5%9B%BD%E4%BA%BA%E5%BC%80%E5%A7%8B%E5%9C%A8%E7%AA%97%E6%88%B7%E4%B8%8A%E6%B6%82%E7%99%BD%E5%9E%A9%E7%B2%89%E3%80%81%E6%B6%82%E9%85%B8%E5%A5%B6%E2%80%A6%EF%BC%9F%E7%83%AD%E5%BE%97%E6%B2%A1%E6%8B%9B%E8%BF%98%E6%98%AF%E7%9C%9F%E6%9C%89%E7%94%A8%EF%BC%9F&pos=0&uri=https://mp.weixin.qq.com/s/_XFmdQ6Zx_O_2UaamUPvfw)
+* [年纪大真会变笨吗？这1种方法反而会越来越聪明！](chrome-extension://noogafoofpebimajpfpamcfhoaifemoa/suspended.html#ttl=%E5%B9%B4%E7%BA%AA%E5%A4%A7%E7%9C%9F%E4%BC%9A%E5%8F%98%E7%AC%A8%E5%90%97%EF%BC%9F%E8%BF%991%E7%A7%8D%E6%96%B9%E6%B3%95%E5%8F%8D%E8%80%8C%E4%BC%9A%E8%B6%8A%E6%9D%A5%E8%B6%8A%E8%81%AA%E6%98%8E%EF%BC%81&pos=0&uri=https://mp.weixin.qq.com/s/xaSeMO3zJdtHkx3q1Jvu9A)
 
