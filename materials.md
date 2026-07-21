@@ -578,4 +578,5 @@
 * [年纪大真会变笨吗？这1种方法反而会越来越聪明！](chrome-extension://noogafoofpebimajpfpamcfhoaifemoa/suspended.html#ttl=%E5%B9%B4%E7%BA%AA%E5%A4%A7%E7%9C%9F%E4%BC%9A%E5%8F%98%E7%AC%A8%E5%90%97%EF%BC%9F%E8%BF%991%E7%A7%8D%E6%96%B9%E6%B3%95%E5%8F%8D%E8%80%8C%E4%BC%9A%E8%B6%8A%E6%9D%A5%E8%B6%8A%E8%81%AA%E6%98%8E%EF%BC%81&pos=0&uri=https://mp.weixin.qq.com/s/xaSeMO3zJdtHkx3q1Jvu9A)
 * [高温热浪下，鸟变笨，狗爱咬人，岩羚羊更好斗……](https://mp.weixin.qq.com/s/Okl0tXqyjgQTRPap9iXSfw)
 * [避蚊胺的“臭豆腐”效应](https://mp.weixin.qq.com/s/vSqEZp8kmeN5k8bdehu5FA)
+* [猫咪什么都知道，但TA不会帮你](https://mp.weixin.qq.com/s/lA1VIoWJQ8nC_WdcMSDevA)
 
