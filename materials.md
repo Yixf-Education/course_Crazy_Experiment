@@ -579,4 +579,5 @@
 * [高温热浪下，鸟变笨，狗爱咬人，岩羚羊更好斗……](https://mp.weixin.qq.com/s/Okl0tXqyjgQTRPap9iXSfw)
 * [避蚊胺的“臭豆腐”效应](https://mp.weixin.qq.com/s/vSqEZp8kmeN5k8bdehu5FA)
 * [猫咪什么都知道，但TA不会帮你](https://mp.weixin.qq.com/s/lA1VIoWJQ8nC_WdcMSDevA)
+* [练得勤，不如练得对！iScience｜科学家把十种运动排了座次，代谢短板该练哪项一目了然](https://mp.weixin.qq.com/s/L_PWJi5qMfGeTWW5TZwBsQ)
 
