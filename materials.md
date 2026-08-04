@@ -583,4 +583,6 @@
 * [你闻起来怎么样？多项研究：小时候奶香，长大汗臭，40岁起就有“老人味”！2-壬烯醛是异味核心来源，茄子果实提取物为改善体味提供新方向](https://mp.weixin.qq.com/s/Qp2Z_jhyKeu8w_uZsXOhNA)
 * [科学实锤：这些家务留给老公做，死亡率直降71%！](https://mp.weixin.qq.com/s/QXha2yMnNEGlUVr67tkhKw)
 * [科学家把吸血蝙蝠放上跑步机，发现它的燃料很离谱](https://mp.weixin.qq.com/s/-PDfKlahrNIt7A-_XX9ZNQ)
+* [不论是否带手机去学校，拥有手机的孩子阅读成绩都更差 | 论文频道 | 领研网](https://www.linkresearcher.com/theses/c7ebb170-5d4f-46d6-a1c4-3510d011b7b0)
+* [经常吃垃圾食品，可能永久损伤长期记忆 | 论文频道 | 领研网](https://www.linkresearcher.com/theses/b6fc1ce8-9283-46aa-bebe-7ff3536b419d)
 
