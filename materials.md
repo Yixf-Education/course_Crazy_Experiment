@@ -580,4 +580,7 @@
 * [避蚊胺的“臭豆腐”效应](https://mp.weixin.qq.com/s/vSqEZp8kmeN5k8bdehu5FA)
 * [猫咪什么都知道，但TA不会帮你](https://mp.weixin.qq.com/s/lA1VIoWJQ8nC_WdcMSDevA)
 * [练得勤，不如练得对！iScience｜科学家把十种运动排了座次，代谢短板该练哪项一目了然](https://mp.weixin.qq.com/s/L_PWJi5qMfGeTWW5TZwBsQ)
+* [你闻起来怎么样？多项研究：小时候奶香，长大汗臭，40岁起就有“老人味”！2-壬烯醛是异味核心来源，茄子果实提取物为改善体味提供新方向](https://mp.weixin.qq.com/s/Qp2Z_jhyKeu8w_uZsXOhNA)
+* [科学实锤：这些家务留给老公做，死亡率直降71%！](https://mp.weixin.qq.com/s/QXha2yMnNEGlUVr67tkhKw)
+* [科学家把吸血蝙蝠放上跑步机，发现它的燃料很离谱](https://mp.weixin.qq.com/s/-PDfKlahrNIt7A-_XX9ZNQ)
 
