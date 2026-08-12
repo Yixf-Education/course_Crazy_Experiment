@@ -586,4 +586,6 @@
 * [不论是否带手机去学校，拥有手机的孩子阅读成绩都更差 | 论文频道 | 领研网](https://www.linkresearcher.com/theses/c7ebb170-5d4f-46d6-a1c4-3510d011b7b0)
 * [经常吃垃圾食品，可能永久损伤长期记忆 | 论文频道 | 领研网](https://www.linkresearcher.com/theses/b6fc1ce8-9283-46aa-bebe-7ff3536b419d)
 * [23 岁科学家把自己活埋至 110 米地下，无钟表无太阳，205 天后，生物钟乱成 48 小时](https://mp.weixin.qq.com/s/HPDWiidefc0o7XB-VBWMVw)
+* [给牛屁股上画眼睛？给薯条盒贴假眼睛？这些笨蛋妙招有大用！](https://mp.weixin.qq.com/s/lDjkrBIUh6W7Z82E0xiI2Q)
+* [世界变了，连飞蛾都不扑火了，但事情还没有这么简单](https://mp.weixin.qq.com/s/v9trrpzsMKImxPllmFMX7g)
 
