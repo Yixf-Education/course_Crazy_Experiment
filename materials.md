@@ -589,4 +589,8 @@
 * [给牛屁股上画眼睛？给薯条盒贴假眼睛？这些笨蛋妙招有大用！](https://mp.weixin.qq.com/s/lDjkrBIUh6W7Z82E0xiI2Q)
 * [世界变了，连飞蛾都不扑火了，但事情还没有这么简单](https://mp.weixin.qq.com/s/v9trrpzsMKImxPllmFMX7g)
 * [评审分不出高下，科研基金可以靠抽签决定吗？](https://mp.weixin.qq.com/s/Dy4pDOAG1XYBpVgpWF8cMQ)
+* [2026搞笑诺奖发布：接吻进化史、蟑螂奶、不溅尿便池、内裤土壤研究等获奖](https://mp.weixin.qq.com/s/ZUqage3NSo49MstM4HiakA)
+* [埋下1000条内裤、重新定义接吻、蟑螂奶营养高...这些研究荣获2026年搞笑诺贝尔奖](https://mp.weixin.qq.com/s/dA_Dy2draG9gfUhzzJwXnw)
+* [他踩了4万次毒蛇，终于知道了蛇什么时候会咬人](https://mp.weixin.qq.com/s/LiTVISxQPDN7kxHJs76Ekw)
+* [强行安利蟑螂“奶”，往全球草地下面埋上千条内裤，这届搞笑诺奖到底想干嘛](https://mp.weixin.qq.com/s/6PWzHgqikqP0A-qMPeWNmw)
 
