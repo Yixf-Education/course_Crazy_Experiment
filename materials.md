@@ -593,4 +593,5 @@
 * [埋下1000条内裤、重新定义接吻、蟑螂奶营养高...这些研究荣获2026年搞笑诺贝尔奖](https://mp.weixin.qq.com/s/dA_Dy2draG9gfUhzzJwXnw)
 * [他踩了4万次毒蛇，终于知道了蛇什么时候会咬人](https://mp.weixin.qq.com/s/LiTVISxQPDN7kxHJs76Ekw)
 * [强行安利蟑螂“奶”，往全球草地下面埋上千条内裤，这届搞笑诺奖到底想干嘛](https://mp.weixin.qq.com/s/6PWzHgqikqP0A-qMPeWNmw)
+* [为什么你总是爱上同一类人？最新Nature子刊 44 万人研究：我们倾向于选择与自己相似的人，而理想型伴侣实则就是“高配版自己”](https://mp.weixin.qq.com/s/smm_IhYGnmPQgr2E2FD5KQ)
 
