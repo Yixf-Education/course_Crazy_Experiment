@@ -594,4 +594,6 @@
 * [他踩了4万次毒蛇，终于知道了蛇什么时候会咬人](https://mp.weixin.qq.com/s/LiTVISxQPDN7kxHJs76Ekw)
 * [强行安利蟑螂“奶”，往全球草地下面埋上千条内裤，这届搞笑诺奖到底想干嘛](https://mp.weixin.qq.com/s/6PWzHgqikqP0A-qMPeWNmw)
 * [为什么你总是爱上同一类人？最新Nature子刊 44 万人研究：我们倾向于选择与自己相似的人，而理想型伴侣实则就是“高配版自己”](https://mp.weixin.qq.com/s/smm_IhYGnmPQgr2E2FD5KQ)
+* [Ta总是不能理解你？小鼠+528对情侣实验：所谓“共情性别差”，其实不在感知敏感性，而在雄性/男性更依赖自我参照](https://mp.weixin.qq.com/s/CdZgmGZD7m6nb01Sz23VOA)
+* [只需说话30秒，就能测出年龄？近7000人数据：声音显老的人，肝脏、体重、睡眠易亮起红灯！](https://mp.weixin.qq.com/s/AUVPDHe4C6b3-wFl1egaVg)
 
