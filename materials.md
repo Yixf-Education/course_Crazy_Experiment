@@ -598,4 +598,6 @@
 * [只需说话30秒，就能测出年龄？近7000人数据：声音显老的人，肝脏、体重、睡眠易亮起红灯！](https://mp.weixin.qq.com/s/AUVPDHe4C6b3-wFl1egaVg)
 * [婴儿也会衰老，科学家似乎找到了减缓办法：每个月发2000多块钱](https://mp.weixin.qq.com/s/ivb_XCcB4ZXvVnMUvIM_Kw)
 * [猫和狗谁更聪明？2026 年《Science》给了个新答案](https://mp.weixin.qq.com/s/sTp6xQpfLu9u6Fwc4__lPg)
+* [盘点历史上的伪科学，一个比一个离谱](https://mp.weixin.qq.com/s/TgdQsb0zIaL938Apey_QGw)
+* [为什么和亲近的人会“久处生厌”？](https://mp.weixin.qq.com/s/JIyKKYxhqzF315xB50bRhA)
 
