@@ -600,4 +600,5 @@
 * [猫和狗谁更聪明？2026 年《Science》给了个新答案](https://mp.weixin.qq.com/s/sTp6xQpfLu9u6Fwc4__lPg)
 * [盘点历史上的伪科学，一个比一个离谱](https://mp.weixin.qq.com/s/TgdQsb0zIaL938Apey_QGw)
 * [为什么和亲近的人会“久处生厌”？](https://mp.weixin.qq.com/s/JIyKKYxhqzF315xB50bRhA)
+* [上班捣乱，乱吵乱叫，发出呜呜声，原因只是没吃饱早餐？](https://mp.weixin.qq.com/s/QEQ3KsIhsLOL4Gy2VzFptg)
 
