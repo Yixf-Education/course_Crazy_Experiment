@@ -605,4 +605,5 @@
 * [其实，男人比女人更需要爱情？！研究发现：在爱情中，男性更离不开伴侣，且男性能从浪漫关系中获益更多](https://mp.weixin.qq.com/s/PwUY5qHy6625So9GWvFy0g)
 * [你的食指与无名指，哪个比较长？大鼠实验+22万人元分析：2D:4D竟与性活动及性取向存在关联，雄鼠2D更短者更性活跃且偏好雌性气味](https://mp.weixin.qq.com/s/rEV1PF5eOyVn0LYJ7EG1lA)
 * [你每天都在想什么？研究发现，人类思维大致分成4种类型](https://mp.weixin.qq.com/s/fYb5saGFeEI9zuRTWsI1nA)
+* [一批婴儿被历史做了次「限糖实验」，50 年后他们怎么样了？PNAS：端粒更长，癌症风险大幅下降](https://mp.weixin.qq.com/s/g-bAXwW76iU51A7DzjDbFA)
 
