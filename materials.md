@@ -603,4 +603,6 @@
 * [上班捣乱，乱吵乱叫，发出呜呜声，原因只是没吃饱早餐？](https://mp.weixin.qq.com/s/QEQ3KsIhsLOL4Gy2VzFptg)
 * [情绪稳定是抵抗世界的盔甲，再添新证！最新研究：极度愤怒后，心梗风险飙升8.5倍；短暂愤怒也持续损伤血管；白天越易愤怒，晚上睡眠越差](https://mp.weixin.qq.com/s/vwVtCpwiuEm_SykNCatG1A)
 * [其实，男人比女人更需要爱情？！研究发现：在爱情中，男性更离不开伴侣，且男性能从浪漫关系中获益更多](https://mp.weixin.qq.com/s/PwUY5qHy6625So9GWvFy0g)
+* [你的食指与无名指，哪个比较长？大鼠实验+22万人元分析：2D:4D竟与性活动及性取向存在关联，雄鼠2D更短者更性活跃且偏好雌性气味](https://mp.weixin.qq.com/s/rEV1PF5eOyVn0LYJ7EG1lA)
+* [你每天都在想什么？研究发现，人类思维大致分成4种类型](https://mp.weixin.qq.com/s/fYb5saGFeEI9zuRTWsI1nA)
 
