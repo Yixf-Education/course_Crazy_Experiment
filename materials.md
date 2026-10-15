@@ -606,4 +606,5 @@
 * [你的食指与无名指，哪个比较长？大鼠实验+22万人元分析：2D:4D竟与性活动及性取向存在关联，雄鼠2D更短者更性活跃且偏好雌性气味](https://mp.weixin.qq.com/s/rEV1PF5eOyVn0LYJ7EG1lA)
 * [你每天都在想什么？研究发现，人类思维大致分成4种类型](https://mp.weixin.qq.com/s/fYb5saGFeEI9zuRTWsI1nA)
 * [一批婴儿被历史做了次「限糖实验」，50 年后他们怎么样了？PNAS：端粒更长，癌症风险大幅下降](https://mp.weixin.qq.com/s/g-bAXwW76iU51A7DzjDbFA)
+* [半夜醒了看时间，就会一直这个时间醒来？研究发现：停止夜间时间监控，配合科学光照可有效改善睡眠](https://mp.weixin.qq.com/s/oemCasJO88pL_y7XMM6eAA)
 
