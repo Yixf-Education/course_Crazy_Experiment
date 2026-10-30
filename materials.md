@@ -607,4 +607,5 @@
 * [你每天都在想什么？研究发现，人类思维大致分成4种类型](https://mp.weixin.qq.com/s/fYb5saGFeEI9zuRTWsI1nA)
 * [一批婴儿被历史做了次「限糖实验」，50 年后他们怎么样了？PNAS：端粒更长，癌症风险大幅下降](https://mp.weixin.qq.com/s/g-bAXwW76iU51A7DzjDbFA)
 * [半夜醒了看时间，就会一直这个时间醒来？研究发现：停止夜间时间监控，配合科学光照可有效改善睡眠](https://mp.weixin.qq.com/s/oemCasJO88pL_y7XMM6eAA)
+* [爱情，真的能让人“感同身受”吗？Nature子刊等多项研究：亲密关系中的感同身受并非单纯的心理共情，人们甚至会适度高估伴侣的负面情绪](https://mp.weixin.qq.com/s/kQiTH8JL6MX5soHcdB2FcQ)
 
