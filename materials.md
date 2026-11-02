@@ -609,4 +609,5 @@
 * [半夜醒了看时间，就会一直这个时间醒来？研究发现：停止夜间时间监控，配合科学光照可有效改善睡眠](https://mp.weixin.qq.com/s/oemCasJO88pL_y7XMM6eAA)
 * [爱情，真的能让人“感同身受”吗？Nature子刊等多项研究：亲密关系中的感同身受并非单纯的心理共情，人们甚至会适度高估伴侣的负面情绪](https://mp.weixin.qq.com/s/kQiTH8JL6MX5soHcdB2FcQ)
 * [麻省理工告诉我们男女配对的真相！](https://mp.weixin.qq.com/s/kGeabSlCaWJTa0h6juh2Rw)
+* [养猫or养狗，哪一种更好？三项研究给出科学答案：养猫可改善睡眠、延缓记忆衰退；养狗利于执行功能；猫狗双全效果最优](https://mp.weixin.qq.com/s/TPKMOGtup_lO5MboNMZfuA)
 
