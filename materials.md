@@ -614,3 +614,4 @@
 * [阉割后，竟然能延寿33%？Science报道了一项颠覆认知的研究](https://mp.weixin.qq.com/s/a9-lronvvkPMLJIfaGJj4g)
 * [我不当男人啦！《Science》热报：“30岁”阉割延寿33%，除发福无副作用](https://mp.weixin.qq.com/s/SoWbG8M3q6pYZY86DaGmtA)
 * [孕期“嘴馋”，大脑里发生了什么？](https://mp.weixin.qq.com/s/QYcX3DSlHMDX6lwU2Us8Uw)
+* [运动鞋底的吱吱响其实充满了闪电，这项研究竟能登上《自然》](https://mp.weixin.qq.com/s/5tAdRAMYZLe1_UNn3A7EWA)
