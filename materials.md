@@ -616,3 +616,4 @@
 * [孕期“嘴馋”，大脑里发生了什么？](https://mp.weixin.qq.com/s/QYcX3DSlHMDX6lwU2Us8Uw)
 * [运动鞋底的吱吱响其实充满了闪电，这项研究竟能登上《自然》](https://mp.weixin.qq.com/s/5tAdRAMYZLe1_UNn3A7EWA)
 * [高智商的人，更喜欢独处？多项研究：聪明人不爱社交，但更真诚、自律；且爱独处的人被冷落时，大脑情绪反应更弱，主动开启冷静模式](https://mp.weixin.qq.com/s/IRtj_qq4sWzhIkVe_PIO1g)
+* [早睡真的助减肥！两项研究：延长睡眠时间能减少能量摄入，每天多睡1小时=少摄入270kcal热量！且发现一新激素Raptin](https://mp.weixin.qq.com/s/R-cVUxSOAcFD6FGbwG8Ipg)
